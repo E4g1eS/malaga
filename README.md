@@ -1,2 +1,31 @@
-# malaga
-My Málaga adventures - diary
+# Málaga, Španělsko
+
+## 2.7. - čtvrtek
+
+Ten den nadešel. Letím do Málagy na tři měsíce. Naštěstí jsem byl při smyslech při výběru letenek a letadlo mi tedy odlétá v relativně lidský čas po deváté. Příjezd na letiště o pár (tedy přesně dvě) hodiny dříve. Po rozlučkové selfie s taťkou a Dančou se vydávám rovnou k security checku -- nemít odbavené zavazadlo je osvobozující.
+
+Jako obvykle si hezky všechno připravím, naskládám do boxů a jako obvykle si zapomenu sundat pásek, takže ho na poslední chvíli házím do již odjíždějícího boxu. Poté, co můj batoh projíždí napodruhé security checkem -- asi není běžné vozit dva velké laptopy a další spoustu elektroniky -- jde všechno hladce. Po deváté se s drobným zpožděním odlepuje letadlo od země a o dvě a půl hodinky později s pořádným plácnutím, tak jak to piloti Ryanair umí, dosedá v Málaze.
+
+Když se poprvé dostanu ven z letadla, tak mne přivítá vlhký přímořský vzduch, na který jsem se tak těšil. Samozřejmě to nemění nic na tom, že vzápětí se začínám pořádně potit, protože mám na sobě z letadla dlouhé kalhoty. (Při opouštění letiště se ještě jednou mentálně chválím za rozhodnutí _nemít_ odbavené zavadlo.)
+
+Cestu z letiště mám relativně dobře předgooglenou, takže mezitím, co ostatní u vchodu do metra zmatkují, tak já sebevědomě dojdu k jízdenkovému kiosku a začnu zmatkovat až tam. Nakonec přijdu na to, jak naťukat jednotlivou jízdu a po chvíli už frčím metrem, které tedy spíš připomíná český vlak. V průběhu jízdy přistoupí jeden postarší volající Španěl, který mluví tak nahlas, že oproti němu můj drahý tatínek do telefonu vlastně šeptá. Ale dle pohledů ostatních spolucestovatelů je to spíše ojedinělá situace. Vlastně mi to hezky připomíná klasické divnolidi v pražském metru.
+
+Poté, co vystoupím z metra, tak se dle navigace vydávám pěšky k ubytování. Ani nevím, jak se mi to povedlo, ale až když se dostávám na ulici, kde mám být ubytován, tak si uvědomuji, že nemám přesné číslo domu. Nejdříve tedy zkouším napsat hostiteli (Carlosovi) textovou zprávu. Nic se chvíli neděje, tak začínám volat. Hovor se po dvou zazvoněních dostává do hlasové schránky. V tuto chvíli už začínám uvažovat o alternativách ubytování, ale zkusím tedy volat ještě jednou. Hovor někdo zvedne, ale ozve se ženský hlas -- to asi nebude Carlos. Přes hluk na ulici vyrozumím, že přeci jenom jde o mé ubytování, takže se slavnostně vydávám na Avenida de Barcelona 35, kde ještě chvíli zkoumám zvonky, ale to už se ukazuje sám Carlos a výtahem jedeme do sedmého (nejvyššího) patra domu. Cestou se dozvídám, že Carlos je z Argentiny (takže je mu těžko španělsky rozumět) a moc neumí anglicky, ale působí velmi mile a prohlídku bytu zakončuje obdobou "mi casa es tu casa" [můj dům je tvůj dům].
+
+Po základním zabydlení už mám superhlad. Vyrážím tedy ven a jdu do první hospůdky, kterou vidím "El Tiburón" [Žralok]. Přicházím tedy asi ve 4 a ptám se pana hospodského, jestli si tam můžu dát něco k jídlu. Hospodský opáčí: "Chceš makaróny?" Už se mi nechce nic vymýšlet nic jiného, tak souhlasím. Následně jsem ještě tázán na pití, neodolám a poprosím o pivo. Čekám, že se pán zeptá třeba jaké, ale rovnou mi něco přinese. Tak si tam tak sedím a čekám na jídlo. Mezitím v pozadí běží španělské zprávy. K pivo mi najednou pán přinese ještě bagetu. Po chvíli později mi paní přímo z kuchyně nese objednané makaróny. Pouštím se do nich takovým způsobem, že to pánovi nedá a ptá se, jestli chci ještě třeba hranolky. Z toho jsem trochu zmatený, ale tak nějak pokývám. Potom se ještě pan hospodský ptá na to, jestli s masem. Z toho jsem ještě zmatenější, jakože nějaké tapas k tomu? Tak to také odsouhlasím a po chvíli mi pán nese víceméně ještě jedno plné jídlo. Céle to tedy sním a nakonec za celou tuto hostinu zaplatím 10 Euro. Kvalita jídla: 7/10, poměr cena výkon: 10/10, zážitek: 11/10.
+
+Tento gastronomický výkon mne ovšem tak vyčerpá, že po návratu do bytu upadám na dvě hodiny do spánkového bezvědomí. Po tomto krásném odpočinku se ještě odhodlám vydat k moři, cestou si alespoň trochu víc prohlédnu město. Vidím tedy krásné i méně krásné uličky, obří obchodní dům, ještě víc obří přístav a nakonec konečně pláž. Projít se nohama ve vlnách (už jsem neměl energii na převlékání do plavek a zpět) byl také zážitek, který mi dost validoval to, že toto celé podnikám.
+
+Při cestě zpět jsem to samozřejmě vzal jinou cestou a při koukání všude okolo jsem přehlédnul obrubník a málem sebou plácnul na zem. Takže moje cesta zpátky byla obohacena ještě návštěvou drogerie a zakoupením náplastí na odřený palec u nohy. Avšak s dobrou náladou se vracím do bytu, usínám a zakončuji tak první španělský den.
+
+## 3.7. - pátek
+
+Dnes poprvé budu homeofficovat, ale předtím si ještě dám procházku pro nějakou snídani. Nejdříve se zastavuji s ovocem a zjištuji, že mají dva druhy pomerančů. U jedněch je ale napsáno "k jídlu", takže kupuji ty. Předpokládám, že ty druhé jsou "k dozrání"? V supermarketu nabírám ještě chleba, burákové máslo a nějaký jogurt. Při přípravě snídaně na sebe málem vyliji burákové máslo, protože konzistence je úplně jiná -- tekutější, než v Česku.
+
+Následuje nezanedbatelně mnoho hodin práce, která se dle NDA dá shrnout jako programování a meetingy. S klimatizací v pokoji čas ubíhá překvapivě rychle.
+
+Po ukončení pracovní činnosti se zase vydám na jídlo do nějaké nedaleké restaurace. Přijdu tam, dostanu lístek. Projdu si ho a vyberu si jedno z lehce dražších jídel, protože to vypadá, že tam bude mít víc masa. Člověk, kterého bych spíše tipnul na Mexičana se na mě tak koukne a povídá, "Je to dost velké." Já si říkám, měl jsem víceméně jenom snack k obědu, to dám – takže mu to odsouhlasím. To ovšem netuším, že za chvíli přinese obrovský talíř, který na sobě má doslova kužel jídla, ze kterého by se dosyta najedli 4 lidi. Tak se na to tak podívám, zasměju se a pustím se do toho. V průběhu mi tu nálož okomentuje i pár spusedních stolů.
+
+Každopádně jsem toho snědl co nejvíc a zbytek si nechal zabalit, takže to budu jíst ještě tak dva dny.
+
+Naprosto plný se kutálím domů a začínám sepisovat deník. A tímto víceméně ukončuji první pracovní den.
