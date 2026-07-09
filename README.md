@@ -1,6 +1,6 @@
 # Málaga, Španělsko
 
-## 2.7. - čtvrtek
+## 2.7. -- čtvrtek
 
 Ten den nadešel. Letím do Málagy na tři měsíce. Naštěstí jsem byl při smyslech při výběru letenek a letadlo mi tedy odlétá v relativně lidský čas po deváté. Příjezd na letiště o pár (tedy přesně dvě) hodiny dříve. Po rozlučkové selfie s taťkou a Dančou se vydávám rovnou k security checku -- nemít odbavené zavazadlo je osvobozující.
 
@@ -18,7 +18,7 @@ Tento gastronomický výkon mne ovšem tak vyčerpá, že po návratu do bytu up
 
 Při cestě zpět jsem to samozřejmě vzal jinou cestou a při koukání všude okolo jsem přehlédnul obrubník a málem sebou plácnul na zem. Takže moje cesta zpátky byla obohacena ještě návštěvou drogerie a zakoupením náplastí na odřený palec u nohy. Avšak s dobrou náladou se vracím do bytu, usínám a zakončuji tak první španělský den.
 
-## 3.7. - pátek
+## 3.7. -- pátek
 
 Dnes poprvé budu homeofficovat, ale předtím si ještě dám procházku pro nějakou snídani. Nejdříve se zastavuji s ovocem a zjištuji, že mají dva druhy pomerančů. U jedněch je ale napsáno "k jídlu", takže kupuji ty. Předpokládám, že ty druhé jsou "k dozrání"? V supermarketu nabírám ještě chleba, burákové máslo a nějaký jogurt. Při přípravě snídaně na sebe málem vyliji burákové máslo, protože konzistence je úplně jiná -- tekutější, než v Česku.
 
@@ -29,3 +29,29 @@ Po ukončení pracovní činnosti se zase vydám na jídlo do nějaké nedaleké
 Každopádně jsem toho snědl co nejvíc a zbytek si nechal zabalit, takže to budu jíst ještě tak dva dny.
 
 Naprosto plný se kutálím domů a začínám sepisovat deník. A tímto víceméně ukončuji první pracovní den.
+
+## 4.7. -- sobota
+
+Po výrazném stěhovacím úsilí (před výletem do Málagy ještě v ČR) si spíše odpočívám. Hledám si místa a obecně věci o Španělsku a Málaze. Plán na tento víkend je hlavně si odpočinout -- hlavně mentálně.
+
+Až navečer se vydávám na nový výlet směr nákupní centrum, kde kupuji sportovní boty. Cestou se zastavím i v obchodě s potravinami. Ve Španělsku (nebo alespoň v Málaze) je velmi populární řetězec "Mercadona". Zatím nevím, jestli je to obecně, ale narozdíl mně od známých českých obchodů jsou uličky mezi regály _obrovské_. Nejspíš se tu u nemovitostí tolik neplatí za metr čtvereční? Když procházím sortiment, tak se zděšením zjisťuji, že očividně Španělé neuznávají koncept šťávy/sirupu. S lehkým zklamáním tedy kupuji normální ochucené pití.
+
+## 5.7. -- neděle
+
+Všechno je dnes zavřené. Jeden z mála podniků, který je ale otevřený je fitko, do kterého se zkusím tedy vydat. Proto jsem si také včera kupoval ty boty. Za měsíční vstupné si účtují necelých deset eur. Bohužel nikde nebylo napsané, že člověk potřebuje vlastní zámek, ale nechávám tedy oblečení v šatně nezamčené a vydávám se do prostoru na cvičení. Narozdíl od gymů, na které jsem zvyklý je v tomto obrovské množství strojů, ale velmi málo volných os. Naštěstí to vypadá, že nejsou moc populární, takže si zacvičím velmi přijemně.
+
+Konečně dojídám nálož jídla, kterou jsem si koupil v pátek. Jdu tedy vyzkoušet nedalekou burgrárnu. Dle online obrázků to vypadá jako docela normální podnik. Když tak ale dorazím, tak zjišťuji, že místo na sezení je tam víceméně u jenom u baru, takže si objednám jídlo s sebou. Za kasou je pán se svojí dcerou, které je asi tak 10 a intenzivně sledují fotbal. Zrovna se hraje World Cup: Norsko vs Brazílie. Haaland je nezastavitelný viking a zajistí Norsku postup. Přesto, že pán za kasou a zároveň kuchař při přípravě jídla intenzivně sleduje zápas, tak je burger velmi chutný a určitě tam nejsem naposledy.
+
+## 6.7. -- pondělí
+
+Dle českého kontraktu mám dneska státní svátek. Jsem trochu rozbombený z včerejšího fitka a docela si lenoším a zkouším trochu komunikovat online španělsky. Přes text to jde velmi dobře (hlavně kvůli tomu, že nemusím dekódovat přizvuky). Pokud jde o hlasové zprávy, tam už je to mnohem náročnější. V mezičase nenápadně stáhnu a zahraji trochu (čti hodně) Zaklínače 3.
+
+## 7.7. -- úterý
+
+Normální pracovní den. Docela jsem si už zvykl na rutinu dělání čaje ve společné kuchyni a minivýletu pro nějakou snídani ven. Po práci si zavolám s taťkou, Dančou a Mončou. Přes lehce nestabilní wifi posdílím zážitky a prožitky. Po callu se vydám do centra na levé straně řeky. Na internetu jsem si našel, že by se v ulici Calle Marqués de Larios měly pravidělně hrát šachy. Při procházení čtvrti na levé straně řeky zjišťuji, že jde o relativně luxusní místo s obchody se šperky, všemi možnými módními doplňky a tak podobně. Co ale bohužel nenacházím je jediná šachovnice. Španělé nejsou úplně nejlepší v dávání přesných informací na web. Nu co se dá dělat, večer tedy zakončím vydatnou procházkou přes pláž a okolí. Podívám se i do mariny na obrovské jachty. Plachetnici ale vidím tedy bohužel jen jednu.
+
+## 8.7. -- středa
+
+Na dnešní odpoledne máme se ségrou naplánovanou první z pravidelných gaming/talking sessions. Hrajeme Binding of Isaac a dokonce se nám jeden run podaří dohrát a porazit Delirium. Kvůli nestabilitě internetu se ale domlouváme na příště na Terrarii.
+
+Pro jednoduchost si k véče skočím pro kebab. Už v tak velmi horkém počasí obdivuji obsluhu kebabárny, která celý den musí stát vedle rozehřátých tyčí s masem. I ze zákaznické strany kasy mi bylo dosti horko.
