@@ -55,3 +55,29 @@ Normální pracovní den. Docela jsem si už zvykl na rutinu dělání čaje ve 
 Na dnešní odpoledne máme se ségrou naplánovanou první z pravidelných gaming/talking sessions. Hrajeme Binding of Isaac a dokonce se nám jeden run podaří dohrát a porazit Delirium. Kvůli nestabilitě internetu se ale domlouváme na příště na Terrarii.
 
 Pro jednoduchost si k véče skočím pro kebab. Už v tak velmi horkém počasí obdivuji obsluhu kebabárny, která celý den musí stát vedle rozehřátých tyčí s masem. I ze zákaznické strany kasy mi bylo dosti horko.
+
+## 9.7. -- čtvrtek
+
+Po práci se účastním již dlouho domluvené Blood on the Clocktower online session s lidmi z ČR. Přestože se tentokrát výhra nekoná, tak si hru užiji. Jinak se tento den nic moc významného nestane.
+
+## 10.7. -- pátek
+
+Dnes odpoledne si jdu pokoupit nějaké drobnosti do supermarketu, který už více připomíná český. Akorát přemýšlím, kde bych v tomto městě mohl sehnat vysací zámek?
+
+Poté, co se vrátím na ubytování, tak se zrovna hraje World Cup zápas Španělsko vs Belgie. Pronajímatel se mne nenápadně zeptá, jestli nechci koukat taky. Tak si řeknu, že trochu socializování neuškodí a souhlasím. Při sledování a při pauzách prohodíme pár slov. Zjistím, že Carlos dokonce jednou byl v Praze (prý se mu líbila, ale tak co jiného by mi mohl říct). K nadšení všech Španělsko vyhrává nad Belgií o jeden gól a Carlos se pouští do fotbalové diskuze Madrid/Barcelona. Nenápadně se rozloučím a vytratím se do svého pokoje. Přestože fotbal téměř nikdy nesleduji, tak tento zážítek je příjemný a dokážu si představit někdy watchparty zopakovat.
+
+## 11.7. -- sobota
+
+Dnes vyrazím na delší dobu na pláž. Pobalím si ručník, plavky a opalovák a vydávám se na pěšky. Cesta není náročná, ale poté, co dorazím, tak se vděčně jdu zchladit do vody. Poté se chvíli sluním na rozehřátém písku a je mi hezky. Po pár dalších opakováních tohoto se začnu trochu nudit, balím si tedy svých pět švestek a vydávám se na procházku podél pobřeží. Z České republiky nemám tolik porovnání (protože nemáme moc moří a na jiných plážích většinou není tolik lidí), ale přijde mi, že v Málaze jsou ženy velmi často připravené nejen se opalovat, ale obecně existovat bez vrchního dílu plavek -- a to ženy a prsa všech tvarů, barev a stáří.
+
+Sluníčko každopádně relativně rychle vyčerpává, takže se krátce po poledni vydávám na oběd. Natrefím na náhodnou restauraci a objednám si bagetu plnou masa a zeleniny. Malinko pokecám s panem hospodským a poté se vydávám pěknou oklikou zpátky na ubytování.
+
+Těsně než dorazím úplně domů, tak se ještě zastavím na pivo "pinta" což znamená vlastně jenom to, že je to půl litru, protože jinak španělé dávají malé pivo.
+
+Tato velkoprocházka s plaváním a sluněním mne natolik vypne, že většinu odpoledne celkem efektivně prospím.
+
+## 12.7. -- neděle
+
+Začínám den návštěvou fitka. Časem si třeba vytipuji nějaké lidi, kteří chodí častěji a oslovím je. Po cvičení si dávám rychlou sprchu a jdu vyzkoušet místní ramen restauraci, kterou mi doporučil můj kamarád Kaštan. Uvnitř mají hezkou výzdobu ve stylu anime One Piece. Přestože je jídlo lehce dražší, tak je tak dobré, že tu určitě nejsem naposledy. K jídlo navíc zkouším prý japonské pivo, které tedy bohužel tak dobré není a tedy to naposledy určitě mám.
+
+Odpoledně si odpočívám a píšu si s jedním možná-v-budoucnu kamarádem z Granady. Máme toho až překvapivě hodně společného a také intenzivně procvičuji španělštinu.
