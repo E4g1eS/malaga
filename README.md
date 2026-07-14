@@ -81,3 +81,11 @@ Tato velkoprocházka s plaváním a sluněním mne natolik vypne, že většinu 
 Začínám den návštěvou fitka. Časem si třeba vytipuji nějaké lidi, kteří chodí častěji a oslovím je. Po cvičení si dávám rychlou sprchu a jdu vyzkoušet místní ramen restauraci, kterou mi doporučil můj kamarád Kaštan. Uvnitř mají hezkou výzdobu ve stylu anime One Piece. Přestože je jídlo lehce dražší, tak je tak dobré, že tu určitě nejsem naposledy. K jídlo navíc zkouším prý japonské pivo, které tedy bohužel tak dobré není a tedy to naposledy určitě mám.
 
 Odpoledně si odpočívám a píšu si s jedním možná-v-budoucnu kamarádem z Granady. Máme toho až překvapivě hodně společného a také intenzivně procvičuji španělštinu.
+
+## 13.7. -- pondělí
+
+Dnes jsem se rozhodnul trochu více prozkoumat severní část Málagy. Vyrazil jsem tedy po práci ven a vydal se směrem "nahoru" -- protože Málaga je na jižním pobřeží mezi mořem a horami, tak nahoru doopravdy většinou znamená na sever.
+
+Čím déle tu jsem, tak si více uvědomuji, že Španělé jsou asi alergičtí na obousměrný provoz. Naprostá většina ulic jsou jednosměrky. A to dokonce i v případech, že mají více pruhů. Pro pěší to má spíše výhody, jako třeba bezpečnější přecházení mimo přechod. Z dopravním poznatků také musím konstatovat, že interval zelené pro chodce na přechodech je často jedna ku jedné k červené, což znamená, že pro někoho z České Republiky svítí zelená pro chodce vlastně celou věčnost.
+
+Když se procházím, tak nedaleko vidím zajímavý kopec se skalisky a křížem na vrcholu. Online zjišťuji, že takovéto kříže se často na kopcích používají jako hromosvody. Vzhledem k tomu, že nikde ani mráček, natož bouřka, tak si řeknu, že se tam vydám. Po chvíli chůze směr Kopec se dostávám k meziměstské silnici, (která tedy už má obousměrný provoz, uprostřed je ostrůvek, takže se to vlastně nepočítá). Po rozhlédnutí na jednu i druhou stranu nikde nevidím žádný podchod ani nadchod, tak se rozhodnu silnici přeběhnout. Při přeskakování přes svodidla se hezky karmicky nakopnu do kolena jako napomenutí, že toto bych neměl dělat. Přežiju. Na druhé straně už mne čeká relativně strmý prašný kopec. Po pár minutách drápání se směr vrchol seznám, že moje sandály na toto nejsou úplně perfektní... udělám si tedy pár fotek a vrátím se už lidštější cestou zpátky.
