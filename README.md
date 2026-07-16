@@ -89,3 +89,23 @@ Dnes jsem se rozhodnul trochu více prozkoumat severní část Málagy. Vyrazil 
 Čím déle tu jsem, tak si více uvědomuji, že Španělé jsou asi alergičtí na obousměrný provoz. Naprostá většina ulic jsou jednosměrky. A to dokonce i v případech, že mají více pruhů. Pro pěší to má spíše výhody, jako třeba bezpečnější přecházení mimo přechod. Z dopravním poznatků také musím konstatovat, že interval zelené pro chodce na přechodech je často jedna ku jedné k červené, což znamená, že pro někoho z České Republiky svítí zelená pro chodce vlastně celou věčnost.
 
 Když se procházím, tak nedaleko vidím zajímavý kopec se skalisky a křížem na vrcholu. Online zjišťuji, že takovéto kříže se často na kopcích používají jako hromosvody. Vzhledem k tomu, že nikde ani mráček, natož bouřka, tak si řeknu, že se tam vydám. Po chvíli chůze směr Kopec se dostávám k meziměstské silnici, (která tedy už má obousměrný provoz, uprostřed je ostrůvek, takže se to vlastně nepočítá). Po rozhlédnutí na jednu i druhou stranu nikde nevidím žádný podchod ani nadchod, tak se rozhodnu silnici přeběhnout. Při přeskakování přes svodidla se hezky karmicky nakopnu do kolena jako napomenutí, že toto bych neměl dělat. Přežiju. Na druhé straně už mne čeká relativně strmý prašný kopec. Po pár minutách drápání se směr vrchol seznám, že moje sandály na toto nejsou úplně perfektní... udělám si tedy pár fotek a vrátím se už lidštější cestou zpátky.
+
+## 14.7. -- úterý
+
+Dnes jsem se rozhodl jít do fitka hned po práci. Nebyl to dobrý nápad. Hned jak jsem vešel, tak už jsem se rovnou začal smiřovat s tím, že si to dnes dám víc alternativně. Přestože většina _celého_ fitka byla zabraná, tak jsem na chvíli ukořistil lavici, odjel si svoje a potom rychle padal pryč. Výhoda je, že fitka má až do 23:00, takže poučen příště už přijdu později.
+
+## 15.7. -- středa
+
+Dnes po práci jsem domluvený s kamarádem, se kterým jsem se seznámil online, že vyrazíme ven. _Rai_ (celým jménem _Raimundo_ ✨) přijel autem až z Granady. Nejdříve jsme zamířili skrz město směr pláž, cestou jsme povídali španělsky a jsem ze sebe až překvapený, jak dobře to šlo. Samozřejmě se Rai snažil mluvit pomaleji a jednodušeji než s rodilým mluvčím. A když jsem trochu tápal, tak naštěstí Rai také umí anglicky, takže jako fallback to naprosto stačilo. Po nedlouhém zchlazení v moři jsme pokračovali v klábosení o všem možném a vydali se na vyhlídku _Gibralfaro_, která je přímo vedle historického centra Málagy -- a výhled to opravdu byl. Rozhodně se tam ještě minimálně jednou chci podívat při západu slunce.
+
+Následně byla v plánu Raiem doporučená italská restaurace, ale bohužel už ten den měli plno (náhodná středa odpoledne??), takže jsme to na jistotu otočili do mnou již vyzkoušené ramen restaurace. Paradoxně bylo docela zvláštní pozorovat a poslouchat, jak se Rai baví s obsluhou. Je možné, že asijská obsluha také nemá tu nejlepší španělštinu -- stejně jako asijská obsluha v ČR s češtinou.
+
+Cestou zpátky jsme ještě zakotvili na jedno pivo v baru, který je doslova jeden vchod vedle mého ubytování. Rai mi ukázal jednu značku piva, která je ve Španělsku "prémiová" a musím uznat, že kvalita byla cítit. Pořád to bylo relativně lehké pivo, ale rozhodně bylo zatím nejzajímavější. Také mi bylo vysvětleno, že španělé dávají vždy malé pivo schválně, aby v horkých dnech nezteplalo.
+
+Při již pozdnější hodině jsme se ubrali do mého ubytování, ještě trochu _pokecali_ a šli spát.
+
+## 16.7. -- čtvrtek
+
+Rai domluvený sraz s jiným dlouholetým kamarádem z Málagy. Oceňuji a chápu Raiovu efektivitu cesty, přeci jenom je to z Granady téměř dvě hodiny. Předtím než Rai odchází, tak ještě stihneme společný oběd v kolumbijské restauraci, která také rozhodně stojí za navštívení. Rai působí velmi mile, otevřeně a je ochotný tolerovat mou superzákladní španělštinu, takže mu ještě tímto způsobem děkuji za pěkné chvíle.
+
+Odpoledne už si jen tak lebedím a navečer, abych neudělal stejnou chybu jako posledně, se vydávám do fitka.
