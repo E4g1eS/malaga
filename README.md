@@ -108,4 +108,4 @@ Při již pozdnější hodině jsme se ubrali do mého ubytování, ještě troc
 
 Rai domluvený sraz s jiným dlouholetým kamarádem z Málagy. Oceňuji a chápu Raiovu efektivitu cesty, přeci jenom je to z Granady téměř dvě hodiny. Předtím než Rai odchází, tak ještě stihneme společný oběd v kolumbijské restauraci, která také rozhodně stojí za navštívení. Rai působí velmi mile, otevřeně a je ochotný tolerovat mou superzákladní španělštinu, takže mu ještě tímto způsobem děkuji za pěkné chvíle.
 
-Odpoledne už si jen tak lebedím a navečer, abych neudělal stejnou chybu jako posledně, se vydávám do fitka.
+Odpoledne už si jen tak lebedím a až navečer, abych neudělal stejnou chybu jako posledně, se vydávám do fitka.
