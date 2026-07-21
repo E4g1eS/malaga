@@ -109,3 +109,41 @@ Při již pozdnější hodině jsme se ubrali do mého ubytování, ještě troc
 Rai domluvený sraz s jiným dlouholetým kamarádem z Málagy. Oceňuji a chápu Raiovu efektivitu cesty, přeci jenom je to z Granady téměř dvě hodiny. Předtím než Rai odchází, tak ještě stihneme společný oběd v kolumbijské restauraci, která také rozhodně stojí za navštívení. Rai působí velmi mile, otevřeně a je ochotný tolerovat mou superzákladní španělštinu, takže mu ještě tímto způsobem děkuji za pěkné chvíle.
 
 Odpoledne už si jen tak lebedím a až navečer, abych neudělal stejnou chybu jako posledně, se vydávám do fitka.
+
+## 17.7. -- pátek
+
+Dnes po práci se rozhodnu pro nákup bicyklu. Při registraci na španělskou verzi aplikace pro prodej nákup věcí z druhé ruky mi webová stránka řekne, že moje české číslo telefonu je neplatné. Nepropadám panice a napíšu tedy na technický support, který překvapivě rychle a anglicky odpoví. Po vyřešení tohoto zádrhele jde už víceméně vše podle plánu. Najdu průměrně omšele vypadající kolo za 30 eur a napíšu majiteli.
+
+Bez čekání na odpověď se vydám do Decathlonu pro zámek a helmu na kolo. Za pár eur pokoupím a spokojeně se vrátím.
+
+## 18.7. -- sobota
+
+S prodejcem kola so domluvíme na předávce těsně před polednem. Razím tedy již s helmou a zámkem v batohu do centra, kde chvilku čekám před pizzerií a záhy vidím průměrně vypadajícího španělského chlápka přijíždět na kole z inzerátu. Poté, co pánovi řeknu, že mluvím španělsky "un poco" [trochu], tak se pán rozhodne se velmi posnažit s angličtinou. A přestože mu odpovídám španělsky, tak se pořád snaží vymýšlet anglické výrazy... moc mu to nejde, ale tak co už. Zároveň je tedy pán velmi výřečný a povídá spousty věcí kolem i nekolem. Postupem času trochu začnu nabývat dojmu, že je tu malá pravděpodobnost, že kolo je kradené. Rychle tu myšlenku vyženu a spokojeně (po vyzkoušení, že kolo tak nějak funguje) odjíždím.
+
+Málaga je pro cyklistiku mnohem lépe uzpůsobená, než třeba Praha. Hlavní tahy silnic mají vedle -- mimo plochu, kde jezdí auta -- dobře udržovaný cyklopruh. Zároveň obecně řidiči v Málaze jsou navyklejší respektovat chodce a cyklisty, takže se cítím bezpečně. Dnes si projedu trochu město a nakonec zamířím směrem na sever podél řeky. Díky rozšířenému dosahu s kolem se dostanu až do okraje města. Architektura je tu trošku jiná. Lehce mi to připomíná domky v Miami z filmů, akorát v horším stavu. Zatím nemám stoprocentní důvěru v kolo, takže až narazím na takřka konec města, tak se vrátím spokojeně domů.
+
+## 19.7. -- neděle
+
+S cyklonadšením si dnes naplánuji výlet podél břehu. Před polednem vyrazím směrem na východ. Po asi hodince jízdy se zastavím na brunch v simpatickém zapadlém podniku, který nabízí nějaké tapas. Nevím úplně přesně proč, ale rozhodnu se po dlooouhé době vyzkoušet kávu. Objednám si tedy kávu "con leche" [s mlékem] a čekám, co se bude dít. Přestože ze samotné chuti kávy nejsem kdovíjak odvařený, tak posedávat si pod slunečníkem, užívat si mořského vzduchu a usrkávat hořkého nápoje se mi velmi líbí a musím uznat, že by to asi s čajem nebylo tak úplně to samé.
+
+Po tomto nabrání sil se znovu vydávám na cestu východním směrem. Vysokých budov rapidně ubývá a nakonec mne cyklostezka zavede vedle krásné pláže, okolo které jsou rozsypané stánky se vším možným. Přestože je to velmi turisticky zaměřené, tak mě trochu mrzí, že takové stánkoviště není i někde trochu blíž centru Málagy. Po poledni se dostávám k budově, která je vidět až z Málagy. Zjištuji, že jde o jakýsi průmyslový objekt, který má zblízka opravdu impozantní rozměry a vydává ještě impozantnější hluk. Na závěr výletu na východ se vyšplhám (bez kola) k něčemu, co vypadá jako maják, ale při bližším prozkoumání to maják není. Co to ovšem _je_ jsem nezjistil.
+
+S tím, jak v Málaze fungují jednosměrky se vracím trochu jinou cestou, takže můžu obdivovat trochu jiné domečky a obydlí. Když dorazím do centra Málagy, tak nejsem nikterak unavený a rozhodnu se tedy projet ještě podél západního pobřeží. To mám sice více prozkoumané pěšky, ale doufám, že se s kolem dostanu dál.
+
+Cestou narazím na oslavy "Virgen del Carmen", což je patronka mořeplavců, takže jde o docela významné pozdvižení, které doprovází živá hudba a masivní trůn se sochou panny. Tento trůn na podstavci nese okolo třiceti můžu, kteří ho ještě do hudby kývají a zvedají. Sledovat uprostřed davu oslavy a postup průvodu je překvapivě zábavné.
+
+Průvod odchází a já se vydávám dál na cestu na západ. Shledávám, že západní strana je o dost méně malebná a když se dostanu až k letišti, tak se rozhodnu, že by mi to pro dnešek mohlo stačit. Chvíli se zastavím a čtu si. Nabrání dalších sil (a posilnění ledovou tříští) mne vrhne na zbytek cesty, kterou ještě na chvíli přeruším rychlím skokem do moře.
+
+Doma už jen padnu do postele a několik hodin spím... nic netuše, co ještě přijde.
+
+Líně se podvečer probudím a koukám, že mi někdo napsal. Koukám blíž a zjištuji, že jde o slečnu, která by chtěla kouknout na finále World Cupu a nemá s kým. Po krátké domluvě tedy vyrážím ven s cílem najít bar, který má místo a televizi. Spojit tyto dva požadavky není úplně lehká záležitost, ale povede se a téměř přesně v devět na začátek zápasu dorazí _Mouna_. Zjištuji, že Mouna je z Maroka a komunikujeme tedy v angličtině. Také zjištuji, že má Mouna mnohem větši fotbalové znalosti, takže je můj zážitek obohacen o sem tam nějaký poznatek, kterého bych si sám určitě nevšimnul. Zápas je velmi pomalý, Argentina celý hlavní čas jenom úspěšně brání a nepustí ani jeden gól. Jde tedy do tuhého. V baru je napětí docela cítit. Až v posledních pár minutách se Španělům povede protlačit jeden gól a v tu chvíli bar vybuchuje nadšením. Argentina se v tu chvíli začne dle mého laického pohledu pořádně snažit, takže je zápas napínavý až do konce. Při posledním zapískání lidé v baru začnou jásat, objímat se a high-fivovat.
+
+S Mounou se rozhodneme vydat do centra, abychom se podívali na to, jak Španělé umí oslavovat. Zjištujeme, že fakt umí. Dle mého kvalifikovného odhadu jsme se dostali na náměstí vedle Calle de Larios, kde už davy skandovali, červené dýmovnice dýmily a hluk byl ohlušující. Trochu jsem litoval Mounu, která tím, že měří asi tak metr a půl, toho viděla o dost méně. Jakmile dav začal houstnout natolik, že už jsme se začali cítit lehce nekomfortně, jsme se odebrali zpátky do klidnějších ulic. Zvuky klaksonů a tůrování motorů však byly slyšet po celém městě.
+
+Na závěr jsme si s Mounou dali ještě nějaké pití a kecali o všem možném. I o tom, že bohužel hned další den odlétá. Víceméně při vycházení z baru jsme narazili na jednu ztrápeně vypadající slečnu, která se očividně ztratila. Měla prý vybitý telefon a bez navigace byla v koncích. Rozhodli jsme se tedy onu slečnu kousek doprovodit a správně nasměrovat. Trochu překvapivé bylo, že slečna na sobě měla místní španělský fotbalový dres, ale uměla velmi dobře anglicky. To se ovšem hned vysvětlilo, když nám oznámila, že je z Německa.
+
+S tím, jak hodně mám město prochozené, tak mi doprovodit ještě Mounu k hotelu nedělalo vůbec problém. Dle hluku to vypadalo, že hlavní fotbalové oslavy už se stáhly hlavně na pár míst a zbytek postupně utichl. Myslím, že tento den si nejspíše budu pomatovat do konce života.
+
+## 20.7. -- pondělí
+
+Dnes jsem ještě pořád byl dost vypnutý z neděle, takže jsem nic moc nepodnikal. Největší můj výlet byl pro nákup šťávy k pití.
