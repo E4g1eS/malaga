@@ -166,8 +166,40 @@ V průběhu dne jsem trochu času zainvestoval do googlení a intenzivního prom
 
 Na dnešek jsem se online domluvil se slečnou _Elisabetou_, že se odpoledne sejdeme. Po páté tedy vyrážím na pláž de la Malagueta. Sraz má být přímo vedle nápisu "Malagueta", který po chvíli kroužení okolo úspěšně najdu a už zdálky vidím Eli, která sedí v sytě červených šatech na pláží a čte si.
 
-Na začátku se domluvíme, že budeme mluvit anglicky... sice bych zvládnul i komunikaci ve španělštině, ale nikoho bych tím neohromil.
+Na začátku se domluvíme, že budeme mluvit anglicky. Sice bych zvládnul i komunikaci ve španělštině, ale nikoho bych tím neohromil. Po rychlém převlečení do plavek -- což je vždy lehce vtipný úkol, protože nikde nejsou žádné "převlékárny" -- skočíme do moře a u toho si povídáme. Zjistím spousty věcí o Eli a sám se snažím komunikovat co nejotevřeněji. Až se nabažíme vody, tak se jdeme slunit na osušky kousek od břehu a u toho si dále povídáme. Toto zopakujeme ještě jednou... a najednou je deset večer a při rozhlédnutí kolem zjišťuji, že jsme na pláži téměř sami. Eli to má domů autobusem, takže už se radši vydáme lehkou procházkou směr zastávka. Při čekání navrhnu, že bychom se mohli vidět znovu a Eli vcelku nadšeně souhlasí (nebo to tak alespoň na mne působí). 
+
+Nápad na další schůzku je to, že Eli naučím jezdit na kole. Samo o sobě to není nic tak speciálního, ale jsem ohromen (přijemně), že se Eli nebojí jít do něčeho tak nového a pro ni neznámého s někým, koho viděla jednou. Zároveň mám pocit, že pokud to vyjde, tak to znamená, že nákup kola z druhé ruky byl nedocenitelný nápad.
 
 ## 25.7 -- sobota
 
+Už jsem si celkem odvyknul vstávat brzo ráno, takže dnešek je trošku náročnější, protože mne v již pro mne nekřesťanský čas (8:30) vzbudí budík. Jedu dnes totiž do Granady za Raiem! Vyrážím s lehkou rezervou na hlavní autobusové nádraží v Málaze. Lístek mám koupený online přes aplikaci dopravní společnosti _Alsa_, která, jak jsem tak pochopil, má relativně silný monopol na meziměstskou autobusovou dopravu. Cesta je naprosto bezproblémová. Snažím se v průběhu trochu sledovat okolí, ale jak je mým zvykem v dopraních prostředcích veřejné dopravy, tak za pár minut spím. Za necelé dvě hodinky se dostávám do Granady.
+
+Dám si pěknou procházku z autobusového nádraží a cestou shledávám, že Granada je asi obecně (alespoň architekturou) hezčí, než Málaga. Časem se dostanu až k Raiovu bytu v centru Granady. Na chvíli se jdu podívat nahoru, kde jsem představen jeho spolubydlícímu _Janovi_, který sice vyrostl na Mallorce, ale má polského tatínka, takže se jeho jméno vyslovuje tak, jak jsme zvyklí.
+
+Záhy poté vyrážíme s Raiem do nedalekého tapas baru na něco jako oběd. K pití dostaneme také sdílené tapas, které svou kvalitou dosahují plnohodnotného jídla a s dostatečným počtem těchto tapas už jsem velmi přijemně nasycen. U jídla mi Rai vypráví spoustu věcí o Granadě i obecně zvyklostech a svátcích, které se tu slaví. Poté se ještě zastavíme ve specializovaném baru na mořské plody, kde si pochutnáme na tapas z ryby, která je sice přeložená v jídelním lístku jako ančovička, ale chutí moc ančovičku nepřipomíná.
+
+Vzhledem k tomu, že v Granadě je přes poledne opravdu horko, protože Granada není přímořské město, tak se odebereme na nenápadnou siestu k Raiovi do bytu.
+
+Poté co přejde největší odpolední smažák se vydáme přes město (se zastávkou na arabský čaj s výhledem na Alhambru) na procházku směr hory s cílem najít pěkné místo pro shlédnutí západu slunce. Rai má vytipované jedno místo, ale ve chvíli, kdy tam dorazíme, tak ještě máme docela dost času, takže se ještě vydáme prozkoumat kopec vedle, který má mít na vrcholu malinkatou vojenskou základnu. Před západem slunce se stihneme vyškrábat až vedle vojenské základny a při západu slunce za námi začne někdo troubit na trubku jeden z vojenských "budíčků". Rai je stejně zmatený jako já, ale nevypadá to, že by se dělo něco dalšího. Cesta zpátky dolů je překvapivě mnohem náročnější než nahoru. Nemám sice úplně horolezecké boty, ale i tak se dostaneme já i Rai v pořádku zpátky dolů. Cestou z kopce ještě obdivuji "domy", které jsou doslova obydlené díry ve skále. Trochu připomínají kamennou obdobu hobitích nor.
+
+Následuje přesun do Raiova oblíbeného baru, kde dělají sushi. A musím uznat, že je fakt dobré. Objednáme si celý talíř a napůl si dáme sushi pochoutky všech druhů. Navíc u těchto dobrot nejdříve vyzkouším Vermouth, který je velmi aromatický a velmi lehce mi připomíná alkohol "Black Fox". Na závěr ještě vyzkouším Calimocho -- klasický španělský drink, který v sobě má jednodušše červené víno a colu. Rai ale vyzkouší toto Calimocho a usoudí, že to není ono. Poté se vrátíme do bytu a Rai přizve ještě Jana na "to správné" Calimocho. Namíchaný drink si vezmeme na střechu domu, která je volně přístupná a při sledování města z ptačí perspektivy povídáme nyní ve třech.
+
+Již lehce připití se vrátíme a ani nevím přesně jak, ale najednou je v plánu ještě vyrazit ven. Po potvrzení mého consentu s tím, že zkusíme jít na drag show, se sbalíme a po asi třech minutách se ocitáme v pomenším klubu. Nyní si ještě vyzkouším rum s kolou, který je velmi neutrálně dobrý. Po chvíli popíjení a vibování s hudbou začne show.
+
+Drag queen s (velmi) krátce střiženými stříbrnými šaty zahájí tanečním solem. Následuje chvíle svůdného šeptání, kterému ale ještě s lehkým zkreslením mikrofonu vůbec nerozumím. Od Raie vyzjistím, že drag queen vybere z _publika_ tři lidi, kteří budou soutěžit. Není mi jasné v čem, ale uvidíme. Po výběru tří slečen začne hrát hudba a první slečna se roztančí takovým způsobem, že zapřemýšlím, jestli tohle někde neprovádí profesionálně. Následují tance od dvou zbývajících slečen, které jsou také řekněme pohybově nadané. V tuto chvíli si uvědomím, jak moc rád jsem, že jsem nebyl vybrán z publika já. Nyní je na řadě hlasování publika o nejlepší tanečnici. Výsledkem je to, že jedna ze slečen vypadne a taneční kolo se opakuje ještě jednou. Výherkyně se s potleskem spokojeně vrátí do publika a vystoupení zakončí ještě jedno taneční solo od drag queen.
+
+Jestli jsem si myslel, že toto je pro dnešek konec (tedy vlastně už je dávno po půlnoci, ale tak chápeme), tak jsem se pletl. Vydáváme se tedy ještě do jednoho klubu, který vypadá víc konvenčně, ale je totálně narvaný, takže se otočíme... a jdeme hledat dál. Najdeme jeden, ve kterém je dostatek prostoru a s pivem v ruce ještě trochu procvičíme naše taneční kreace. Bohužel všechny písničky, které hrají jsou mi neznámé. Holt zatím nemám takový španělský hudební rozhled.
+
+Teď už sice utahaný, ale naprosto spokojený se vracím s Raiem a Janem do bytu, kde asi tak okolo půl páté ráno tvrdě usínám.
+
 ## 26.7. -- neděle
+
+Včerejší intenzivní noc nás nechá spát až asi do poledne. Vyrazíme tedy na snídaňo-oběd do restaurace, kde si objednáme takzvanou _arroz_, které se ve většině zbytku Španělska říká _paella_. Velmi si pochutnám a uvědomím si, že jsem ještě od té doby, co jsem přiletěl nejedl jídlo, které by mi nechutnalo. Zatím mám tedy experimentálně ověřeno, že jídlo je buď dobré nebo ještě lepší.
+
+Odpolední siesta je samozřejmě potřebná, takže si odpočineme a později odpoledne se ještě vydáme s Raiem obhlédnout Alhambru. Pro vstup do placené oblasti je potčeba koupit lístek trochu dopředu, což plánuji na jiný víkend, ale i z gratis areálu jsem nadšený.
+
+Nakonec mne Rai autem odveze na autobusové nádraží, rozloučíme se a úspěšně absolvuji cestu zpátky do Málagy.
+
+## 27.7. -- pondělí
+
+Oproti supersociálnímu víkendu si dneska dám akorát velmi jednoduché fitko a sepíšu všechny zážitky do deníku. Zatím jsem sám ze sebe překvapen, že jsem udržel tempo psaní tak dobře.
