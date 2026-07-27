@@ -147,3 +147,27 @@ S tím, jak hodně mám město prochozené, tak mi doprovodit ještě Mounu k ho
 ## 20.7. -- pondělí
 
 Dnes jsem ještě pořád byl dost vypnutý z neděle, takže jsem nic moc nepodnikal. Největší můj výlet byl pro nákup šťávy k pití.
+
+## 21.7. -- úterý
+
+Dnes jsem se akorát po práci šel malinko projít a dát si jedno pivo v minirestauraci, kterou jsem si oblíbil... ani ne tak kvůli kvalitě jídla, ale díky atmosféře, chillózní hudbě a velmi milé obsluze.
+
+## 22.7. -- středa
+
+Po práci jsem měl další gaming session se ségrou -- tentokrát jsme zvolili Terrarii, u které se zaprvé lépe povídá a zároveň je trochu benevolentnější, když mi náhodou vypadne internet. Bezdrátová wifi je naprosto dostačující na většinu věcí, ale online gaming není jednou z nich.
+
+Zároveň si uvědomuji, že je to jedna z mála přiležitostí, kdy mluvím česky.
+
+## 23.7. -- čtvrtek
+
+V průběhu dne jsem trochu času zainvestoval do googlení a intenzivního promptování AI ohledně cvičení. Důvodem bylo to, že už nějaký ten pátek cvičím a chtěl jsem do toho dostat alespoň nějakou strukturu. Nejde mi ani tak o zvýšení _gainz_, spíš o zjednodušení toho, že budu přesně vědět, co cvičit. Sepsal jsem si tedy jednoduchý seznam cviků ve dvou setech, které budu alternovat. A samozřejmě jsem si "Ačkový" šel rovnou vyzkoušet.
+
+## 24.7. -- pátek
+
+Na dnešek jsem se online domluvil se slečnou _Elisabetou_, že se odpoledne sejdeme. Po páté tedy vyrážím na pláž de la Malagueta. Sraz má být přímo vedle nápisu "Malagueta", který po chvíli kroužení okolo úspěšně najdu a už zdálky vidím Eli, která sedí v sytě červených šatech na pláží a čte si.
+
+Na začátku se domluvíme, že budeme mluvit anglicky... sice bych zvládnul i komunikaci ve španělštině, ale nikoho bych tím neohromil.
+
+## 25.7 -- sobota
+
+## 26.7. -- neděle
