@@ -203,3 +203,9 @@ Nakonec mne Rai autem odveze na autobusové nádraží, rozloučíme se a úspě
 ## 27.7. -- pondělí
 
 Oproti supersociálnímu víkendu si dneska dám akorát velmi jednoduché fitko a sepíšu všechny zážitky do deníku. Zatím jsem sám ze sebe překvapen, že jsem udržel tempo psaní tak dobře.
+
+## 28.7. -- úterý
+
+Dnes jsem si po práci vyrazil cyklisticky na pláž. To, že toto můžu udělat mne i téměř po měsíci stále překvapuje. Většinou nejsem ve vodě dlouho, ale rychlé zchlazení a následné slunění na pláži je zážitek pokaždé (zatím).
+
+K véče si zajdu zase do mé oblíbené hospůdky a na noc si pustím španělský film Contratiempo, který mi doporučila Mouna.
