@@ -209,3 +209,28 @@ Oproti supersociálnímu víkendu si dneska dám akorát velmi jednoduché fitko
 Dnes jsem si po práci vyrazil cyklisticky na pláž. To, že toto můžu udělat mne i téměř po měsíci stále překvapuje. Většinou nejsem ve vodě dlouho, ale rychlé zchlazení a následné slunění na pláži je zážitek pokaždé (zatím).
 
 K véče si zajdu zase do mé oblíbené hospůdky a na noc si pustím španělský film Contratiempo, který mi doporučila Mouna.
+
+## 29.7. -- středa
+
+K mému dnešnímu pohodičkování na pláži se znovu přidá Eli, takže večer utíká rychle. Povídáme o všem možném a zjišťuji, že Eli má nemalé znalosti o řecké mytologii a Odysee. Což je sice trochu náhodné, ale o to zajímavější.
+
+Večer zakončuji výtečným ramenem (jídlem, ne částí těla) v již prověřené restauraci.
+
+## 30.7. -- čtvrtek
+
+Ani nevím, jak se mi to povedlo, ale mám pocit, že jsem lehce nachlazený. Mám tedy docela málo energie a jdu spát brzo (na místní poměry).
+
+## 31.7. -- pátek
+
+Zdravotně se už cítím lépe, ale nemám moc socializační náladu, takže se hezky po práci natáhnu, stáhnu si první sérii Supernatural (_určitě_ naprosto legálně, pozn. red.), na kterou mě nalákala Eli a kouknu na prvních pět dílů. Asi tak u druhého jsem si uvědomuji, že Dean ze Supernatural je vlastně jako kdyby zaklínač Geralt měl bratra a žil v moderní době.
+
+Protože Dean také:
+
+- loví monstra/démony
+- někoho hledá (Dean svého otce, Geralt Ciri)
+- cestou pomáhá lidem obecně
+- má svůj oblíbený dopravní prostředek (Chevrolet Impala / Klepna)
+- nesnáší "rychlé" dopravní prostředky (letadla / portály)
+- a samozřejmě je mysteriózní drsňák
+
+Což ve výsledku znamená, že se mi seriál docela líbí.
