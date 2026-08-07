@@ -234,3 +234,46 @@ Protože Dean také:
 - a samozřejmě je mysteriózní drsňák
 
 Což ve výsledku znamená, že se mi seriál docela líbí.
+
+## 1.7. -- sobota
+
+Odpoledne jsem se rozhodnul, že se vydám na pláž a zkusím si s někým zahrát beach volejbal. Nasadím si tedy čočky (překvapivě rychle) a obicykluji si k pláži. Jak tak projíždím okolo krásné písečné pláže, tak se rozhlížím po natažených sítích. Málem se u toho přerazím jenom dvakrát. Po chvíli uznám, že určitý kousek pláže má velkou koncentraci sítí a beach volejbalistů, takže zastavím, zamknu kolo a jdu se podívat blíž. Jak jsem tak očekával, tak spousta lidí to hraje na velmi dobré úrovni (a co si budem, u beache je to dost znát), takže tam nic nezkouším. Koutkem oka si všimnu trojice, která se rozcvičuje, tak se k ní vydám a zeptám se (španělsky :P), jestli se můžu přidat. Bohužel se dozvím, že už mají skupinu, která za chvíli přijde.
+
+Na chvíli si tedy sednu na nedalekou zídku a pozoruji dění okolo. Zaměřím se na dvě skupiny, které vypadají, že hrají na podobné úrovni, co já -- a dokonce jsou vedle sebe. Nenápadně se vměstnám mezi tyto dvě hřiště a pozoruji intenzivněji. Nedlouho poté se mne z jedné z těchto skupin zeptá _José_, jestli si chci zahrát. Nadšeně souhlasím a jdu na to! Docela nám to spolu jde a jsme schopní vyhrát dva sety po sobě. Střídáme se a hrajeme vždy 2 versus 2. V průběhu se mi ještě představí _Mario_ a další (které si bohužel nepomatuji jménem). Když jsem "na střídačce", tak kecám s ostatními a Josého naučím slovo "dobře", když se mu povede dobře zahrát míč.
+
+Po nějaké chvíli už je většina vyčerpaná (což chápu -- začali hrát dřív než já), ale Mario navrhne, že si můžeme zahrát ještě s jinou skupinkou. Tak se vydávám na procházku podél pláže a za chvíli už na nás mává jiný človíček jménem _Frank_. Tady už dáme jenom pár her 3 versus 3, ale na závěr posbírám čísla jak na Josého, tak na Maria... třeba si s nimi půjdu zase někdy zahrát.
+
+Setkání zakončíme rychlým skokem do moře a naprosto vyčerpaný a naprosto spokojený odjíždím domů.
+
+## 2.7. -- neděle
+
+Velmi sociální sobotu dnes vyvážím pohodičkováním a zkouknutím až nezdravě mnoho dílů Supernatural.
+
+## 3.7. -- pondělí
+
+Již téměř pravidelné pondělní fitko mne baví a přestože si nezakládám na velikosti svalové hmoty nebo na zvedání automobilů, tak jsem rád, že dělám něco zdravého pro své tělo.
+
+## 4.7. -- úterý
+
+Středeční gaming session se ségrou byla přesunuta na dnešek. Jsem trochu vypnutý, ale jsme schopní v Terrarii upižlat Skeletrona a dokonce i pár dalších bossů včetně Wall of Flesh. Zároveň si samozřejmě se ségrou i pokecáme.
+
+## 5.7. -- středa
+
+Konečně jsem přesvědčil Eli, že ji naučím jezdit na kole. Jakmile vyjdu před dům, tak se smutnýma očima sleduji, že někdo v noci přišel a za pomocí štípaček si moje kolo vypůjčil na dobu neurčitou. Ve své podstatě mne mrzí mnohem víc, že jsem Eli něco slíbil a nebudu to moct dodržet -- zvlášt něco tak zajímavého. Samotná cena kola byla taková, že si myslím, že jsem rozhodně využil jeho hodnotu naplno. Vydávám se tedy na pláž... bez kola... takže ještě ke všemu příjdu pozdě.
+
+Setkání však probíhá příjemně, trochu víc se poznáváme, zaplaveme si, zkoušíme kolik kdo udělá kotrmelců ve vodě a užíváme si pláže společně. Z nějakého důvodu je dnes větší zima, takže se po chvíli sebereme a jdeme se ještě trochu projít po nedalekém tržišti. Napadne mne, že bych si měl pořídit do sbírky také prstýnek z Málagy. Jeden si tedy vyhlédnu a bez přílišného zdráhání koupím. Už z předchozích setkání jsem vycítil, že Eli je docela proti srsti, když za ni někdo něco platí, takže to ani nezkouším (ale samozřejmě mě to napadne!)
+
+## 6.7. -- čtvrtek
+
+Z nějakého důvodu se probudím se středně masivní migrénou a přes den se snažím přežívat. Ibalginu odolám hlavně z důvodu, že jich tu nemám tolik. A co kdyby přišlo něco horšího.
+
+## 7.7. -- pátek
+
+Včera v noci přiletěl do Málagy můj kolega _Honza_. Jsme tedy domluvení na dnešní oběd. Vybral jsem moji známou kolumbijskou restauraci. Já jsem si jako obvykle dal denní menu. Honza si vybral řízek... za 18 Eur. Když si to objednával, tak mi to ještě nedošlo, ale tento řízek měl stejnou cenu, jako to gigantické jídlo, které jsem jedl tři dny. A Kolumbijci nezklamali, Honzovi přistála na stole taková porce řízků, že si také odnášel minimálně polovinu domů.
+
+Když jsem dopracoval, tak jsem se vydal za Honzou na pláž. Bez kola mi ta cesta najednou přijde táák dlouhá. Na pláži jsem s překvapením zjistil, že si Honza zaplatil lehátko. Zaplavali jsme, pokaci jsme a vydali se na drink. Při příležitosti slavnostního setkání v Málaze jsme dali dva koktejly:
+
+Já: Paloma + Orgasmo
+Honza: Margarita + Piña colada
+
+Nu a poté Honza odešel dojíst řízek.
