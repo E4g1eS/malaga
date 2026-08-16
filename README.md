@@ -289,6 +289,19 @@ Odpoledne se mi na pláži povedlo i na chvíli usnout, ale naštěstí jsem se 
 Zakotvili jsme to tedy na nějakých pár sklenek vína a jídlo. Pokecali jsme a nakonec se rozloučili. Honza odešel pěšky a já na kole. Akorát jsem si musel přední kolo nafouknout, protože to vypadá, že uchází.
 
 ## 9.7. -- neděle
+
+V plánu je výšlap na nedaleké dva kopce. Okolo poledne dáváme sraz pod mým domem a vyrážíme najít nějaký oběd, abychom se na ten výkon posilnili. Moc toho ještě otevřeného není, tak pro ušetření nějakého času zamíříme do Burger Kingu (který je tu z nějakého důvodu mnohem populárnější než McDonald). Jako benchmark si dám klasický Whopper... a chutná jako klasický Whopper, takže alespoň chuť si drží stejnou. Když si jdu natočit bezedné pití, tak ovšem stroj nefunguje. Přivolám obsluhu, která vypadá, že mi nejdřív moc nevěří, ale po vyzkoušení mi dá zapravdu. Po asi deseti minutách se ozve, že už je to ready, takže si vítězoslavně jdu natočit nějaké ty cukry a kofein, abych měl energii na cestu.
+
+Výšlap začínáme přímo na kraji jedné chudší čtvrti. Trošku jsme vymňoukli čas, takže jdeme v odpoledním pařáku, ale kupodivu to není tak strašné, jak by zní. Jakmile ve vyškrábem na první kopec, tak vidíme celou Málagu. Abych byl naprosto upřímný: z tohoto kopce to není kdovíjak krásný pohled, protože nejblíž jsou panelákové bloky z okraje města a historický střed je v dáli. Alespoň vidíme až k moři.
+
+Po tomto kopci se vydáváme směr druhý kopec. Cestičky jsou spletité a mnohokrát se nám stane, že se musíme kus cesty vracet. Honza naštěstí také vypadá, že mu to tolik nevadí. Cestou necestou potkáme v horách obrovský betonový plácek s pár "budovami" (spíše zříceninami) po okrajích. Přes notnou diskuzi nejsme schopní ani zdaleka určit, co to dřív bylo nebo proč to tu někdo postavil.
+
+Jakmile zjistíme, že cestičky pořádně na druhý vyhlídnutý kopec nevedou a museli bychom slézt do města a znovu vylézt někudy jinudy, tak změníme cíl na jeden z mála zalesněných kopců a zkusíme ten. Úspěšně se dostaneme až nahoru a můžeme Málagu obdivovat z lehce jiného úhlu.
+
+Již docela vyšťavení (teda alespoň já) slezeme zpátky do města a cestou potkáme největší neoficiální skládku, kterou jsem kdy viděl. Konečně zastavujeme v náhodném mexickém baru, kde si objednávám pivo Victoria. Zezačátku zaplaší žízeň, ale je to asi to nejhorší, co jsem tu zatím pil, takže to potom ještě vyvážím jednou Coronou.
+
+TODO
+
 ## 10.7. -- pondělí
 ## 11.7. -- úterý
 ## 12.7. -- středa
