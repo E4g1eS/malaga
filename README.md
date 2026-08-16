@@ -300,11 +300,53 @@ Jakmile zjistíme, že cestičky pořádně na druhý vyhlídnutý kopec nevedou
 
 Již docela vyšťavení (teda alespoň já) slezeme zpátky do města a cestou potkáme největší neoficiální skládku, kterou jsem kdy viděl. Konečně zastavujeme v náhodném mexickém baru, kde si objednávám pivo Victoria. Zezačátku zaplaší žízeň, ale je to asi to nejhorší, co jsem tu zatím pil, takže to potom ještě vyvážím jednou Coronou.
 
-TODO
+Po tomto jsme tak vypnutí, že se rozloučíme a vyrazíme si dát siestu. Navečer se ale ještě zmátoříme (ani nevím jak) na společnou večeři, na kterou dojedu na kole a potom dokonce vodní dýmku. Honza má vodní dýmku po hodně dlouhé době, tak se ujmu o jeho duševní obohacení dýmkovými znalostmi. U tinto de verano pokecáme a se slábnoucí dýmkou se už finálně odebereme na kutě.
 
 ## 10.7. -- pondělí
+
+Dnes je to bohužel krátký a smutný příběh. Jsem domluvený s jednou slečnou, že vyrazíme ven. Nejdříve to ale slečna posune a následně schůzku zruší úplně. Es lo que hay.
+
 ## 11.7. -- úterý
+
+S Honzou se domluvíme na pohodózní večeři v jedné restauraci. Na kole v pořádku dorazím a dáme si každý nějakou mňamku. Poté se ještě rozhodneme přesunout a potkáme sportovní areál, kde lidé hrají _padel_ a člověk se na ně od baru může koukat. Tak se tam posadíme, dáme si pivo a chvíli pozorujeme jak se ta hra vlastně hraje. Vypadá to jako takový tenis pro někoho, kdo to nechce brát tak vážně.
+
+Když sportovní centrum začne vypadat, že zavírá, tak se s Honzou  rozloučíme a já začnu nafukovat přední kolo od kola... a bohužel slyším příliš nahlas unikající vzduch. Díra z dřívějška se očividně rozšířila. Cesta tedy vypadá tak, že popojedu asi tak 250 metrů a nafukuji znovu. Po příliš dlouhé a náročné cestě se ale úplně vyflusaný dostanu úspěšně domů. Bohužel tento výkon mne asi vypnul natolik, že jsem se doslova přehřál a mám úpal s pěkným bolením hlavy. Snažím se pít, co to dá, ale efekt to má minimální.
+
 ## 12.7. -- středa
+
+Přestože předešlá noc byla krušná, tak téměř stoprocentní zatmění slunce si nemohu nechat ujít. Honza byl tak hodný, že přes den s nelehkými překážkami (vyprodáno / nešpanělšinou) pokoupí dvoje brýle posvěcené EU. Takže okolo šesté se společně vydáváme na cestu na nedaleký kopec (ten z neděle). A co vám budu povídat, s dozvuky úpalu to není výšlap vůbec lehký. Nějak se nakonec octnu na vrcholu, který tentokrát je docela rušnější než minule, ale pořád sedíme "v první řadě".
+
+Přes následující hodinku a půl sledujeme postupné zatmívání, které je opravdu krásné. To, jak se perfektně (alespoň okem) kulatý Měsíc zakousává do Slunce, které má fáze:
+
+1. ping-pongová pálka
+2. ukousnutá palačinka
+3. fakt nažraný pac-man
+4. dětsky nakreslený Měsíc v rohu obrázku
+5. nejvíce podměrečná podkova na světě
+
+Bohužel není zatmění stoprocentní. Jakmile s Honzou seznáme, že už se slunce zase vrací, tak se vydáme na cestu zpět. Dáme ještě společnou večeři a dáme rozchod.
+
+Při návratu domů už mi hlava úplně pulzuje a musím si na ni lít studenou vodu. Následuje další pěkně úpalová noc. Ale za to zatmění to stálo!
+
 ## 13.7. -- čtvrtek
+
+S lítostí Honzovi napíšu, že dneska jsem fakt KO, protože potřebuju alespoň trochu zregenerovat ten úpal. Což se mi relativně povede.
+
 ## 14.7. -- pátek
+
+Dneškem začíná _Feria de Málaga_, což jsou _týdenní_ slavnosti Málagy. V pozdním odpoledni se s Honzou sejdeme u průvodu, který vyráží z náměstí a obsahuje různé historické převleky včetně krále, duchovních, vojáků a pochodové kapely. Tím, že mám porovnání z Kutné Hory, tak mohu podotknout... máme lepší.
+
+Průvod nenásledujeme, ale vydáme se na večeři a víno. U vína je sice trochu pochybná obsluha, která na španělské poměry _velmi_ spěchá a téměř mě nenechá domluvit, ale kupodivu nám doporučí velmi dobré víno.
+
+Před půlnocí se ještě vydáváme k přístavu, kde už jsou hromady lidí srovnatelné s davy při výhře World Cupu. Přesně dle programu v 11:50 začíná dronová show. Drony tvoří různé obrazce různých barev. Bohužel to vypadá, že show nemá jakýkoli příběh ani pointu, což s téměř neomezenými zobrazovacími možnostmi dronů je trošku škoda, ale synchronizaci mají a světélka jsou pěkná. Show samozřejmě uzavírá reklama na místní pivovar a velký nápis "Málaga".
+
+Decentní chvíle černé oblohy hezky oddělí následující ohňostroj, na kterém rozhodně Málaga nešetřila. Impozantní rozměry umocňovalo navíc zvukové zpoždění výbuchů.
+
+Tento audiovizuální zážitek už nás odrovná a v masivním davu se vydáme na cestu domů.
+
 ## 15.7. -- sobota
+
+// picasso
+
+## 16.7. -- neděle
+
