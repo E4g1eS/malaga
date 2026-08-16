@@ -277,3 +277,21 @@ Já: Paloma + Orgasmo
 Honza: Margarita + Piña colada
 
 Nu a poté Honza odešel dojíst řízek.
+
+## 8.7. -- sobota
+
+Ráno mi paní z inzerátu na další kolo odepsala, že v 11 si můžu kolo vyzvednout. Což znamenalo tedy lehkou paniku, protože jsem samozřejmě vstával asi tak v 9:45 a místo k vyzvednutí nebylo úplně za rohem. Každopádně kolo jsem si úspěšně vyzvednul. Chvilku jsem šaškoval mezi více obchody, který _ani jeden_ neměl zámek na kolo, takže jsem to nakonec "vzdal" a vydal se do Decathlonu, který je tedy dál, ale už jsem jel na jistotu.
+
+Následně jsem se znovu vydal za Honzou na pláž (teď už na kole). Praktikovali jsme průběžné slunění a skákání do vody. Vzal jsem také nafukovací míč, takže jsem i trochu otestoval Honzovu alespoň základní volejbalovou afinitu. K obědu hezky burgřík.
+
+Odpoledne se mi na pláži povedlo i na chvíli usnout, ale naštěstí jsem se nespálil, ani nic podobného. Později jsme už víceméně slunění zabalili a chvíli se šli kouknout na nedaleké beachvolejbalové kurty. Kdybych tam byl sám, tak asi zkusím nějakou skupinku oslovit, ale Honza vypadal docela nesvůj, tak jsem ho nechtěl trápit už druhý dovolenkový den -- přeci jenom by asi většina hráčů mluvila hlavně španělsky.
+
+Zakotvili jsme to tedy na nějakých pár sklenek vína a jídlo. Pokecali jsme a nakonec se rozloučili. Honza odešel pěšky a já na kole. Akorát jsem si musel přední kolo nafouknout, protože to vypadá, že uchází.
+
+## 9.7. -- neděle
+## 10.7. -- pondělí
+## 11.7. -- úterý
+## 12.7. -- středa
+## 13.7. -- čtvrtek
+## 14.7. -- pátek
+## 15.7. -- sobota
