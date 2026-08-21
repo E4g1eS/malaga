@@ -332,6 +332,8 @@ Při návratu domů už mi hlava úplně pulzuje a musím si na ni lít studenou
 
 S lítostí Honzovi napíšu, že dneska jsem fakt KO, protože potřebuju alespoň trochu zregenerovat ten úpal. Což se mi relativně povede.
 
+A ještě zvládnu vyměnit duši v předním kole kola.
+
 ## 14.7. -- pátek
 
 Dneškem začíná _Feria de Málaga_, což jsou _týdenní_ slavnosti Málagy. V pozdním odpoledni se s Honzou sejdeme u průvodu, který vyráží z náměstí a obsahuje různé historické převleky včetně krále, duchovních, vojáků a pochodové kapely. Tím, že mám porovnání z Kutné Hory, tak mohu podotknout... máme lepší.
@@ -346,7 +348,34 @@ Tento audiovizuální zážitek už nás odrovná a v masivním davu se vydáme 
 
 ## 15.7. -- sobota
 
-// picasso
+Dnes jsme odpoledne/navečer zamířili do Piccasova muzea. Přestože nejsem moc malířský znalec a obdivovatel, tak se mi výstava velmi líbila a zároveň jsem se dozvěděl alespoň základní věci ze života tohoto Malažského rodáka. Následně jsme s Honzou šli obcházet město a obrážet hospůdky a restaurace. Já jsem si výjimečně dal střízlivou sobotu, ale i tak byl pokec a pohodičkování příjemné.
 
 ## 16.7. -- neděle
 
+Po obědě v italské _Terra Mía_ (i s dezertem) jsme se vydali na průzkum. Z toho, co na mapě vypadalo jako park, se nakonec vyklubal hřbitov, takže jsme šli pozdravit spoustu Juanů, Rodriguezů a podobných. Spousta rodin měla dokonce mauzolea. Na hřbitově také měli sekci s "rezervacemi"... že bych si ze ségry udělal srandu a neoficiálně napsal rezervaci na její jméno?
+
+Cestou ze hřbitova jsme narazili na koncert náhodné španělské skupinky. Sympatické bylo, že hned vedle prodávali pivo a skupinka hrála poctivě a uměla pracovat s publikem. Zůstali jsme tedy a zaposlouchali se do převážně španělských populárních písniček. Zaznělo tedy i pár anglických, ale byly s takovým přizvukem, že se to víceméně dalo poznat jen dle známé melodie.
+
+Po večeři jsme s Honzou ještě na závěr jeho výletu do Málagy zakotvili ještě jednou v dýmkárně.
+
+## 17.7. -- pondělí
+
+Z minulého týdne jsem lehce přesocializovaný, takže si doma dávám naprosto asociální odpočinek.
+
+## 18.7. -- úterý
+
+Po dlouhé době se připojím na rodinný call, kde vylíčím různé příhody ze Španělska. Následuje přesunutá (ze středy) gaming session se ségrou, kde uděláme zase nějaký progress a u toho trochu pokecáme.
+
+## 19.7. -- středa
+
+Nenápadně po práci dám vyprat a nachystám se do fitka. S velkým odhodláním se vypravím na cestu (přes ulici) a s velkým zklamáním zjistím, že mají sváteční otevírací dobu -- prý je nějaká Feria de Málaga nebo co. Zkroušeně tedy rovnou zamířím pro kebab a vrátím se domů.
+
+## 20.7. -- čtvrtek
+
+Navečer se vydám do restaurace s mořskými plody, dám si _boquerones y nějaký název pro chobotnice con patatas fritas_ a velmi si pochutnám. U večeře si čtu a obecně užívám příjemný, teplý večer.
+
+## 21.7. -- pátek
+
+Po delší době se po práci vydám k moři. Nejsem na pláži dlouho, ale velmi obstojně stihnu vykoupání a slunění před tím, než mne hlad vyžene pro večeři, kterou si opět dám v mém oblíbeném baru na rohu ulice, kde už mne servírka zná jako toho člověka, který si dává půl litr piva (= _pinta_), což jak už jsem zmiňoval, není úplně běžné.
+
+Před spaním pokračuji s druhou sérií Supernatural.
