@@ -352,7 +352,9 @@ Dnes jsme odpoledne/navečer zamířili do Piccasova muzea. Přestože nejsem mo
 
 ## 16.7. -- neděle
 
-Po obědě v italské _Terra Mía_ (i s dezertem) jsme se vydali na průzkum. Z toho, co na mapě vypadalo jako park, se nakonec vyklubal hřbitov, takže jsme šli pozdravit spoustu Juanů, Rodriguezů a podobných. Spousta rodin měla dokonce mauzolea. Na hřbitově také měli sekci s "rezervacemi"... že bych si ze ségry udělal srandu a neoficiálně napsal rezervaci na její jméno?
+Začali jsme obědem v již zmíněné _Terra Mía_. Při příležitosti návštěvy italské restaurace jsem se odhodlal dát si espresso. Sice jsem ho zvládl vypít, ale asi budu pokračovat spíše v café con leche. Dezert ke kávě ovšem velmi potěšil.
+
+Následně jsme se vydali na průzkum. Z toho, co na mapě vypadalo jako park, se nakonec vyklubal hřbitov, takže jsme šli pozdravit spoustu Juanů, Rodriguezů a podobných. Spousta rodin měla dokonce mauzolea. Na hřbitově také měli sekci s "rezervacemi"... že bych si ze ségry udělal srandu a neoficiálně napsal rezervaci na její jméno?
 
 Cestou ze hřbitova jsme narazili na koncert náhodné španělské skupinky. Sympatické bylo, že hned vedle prodávali pivo a skupinka hrála poctivě a uměla pracovat s publikem. Zůstali jsme tedy a zaposlouchali se do převážně španělských populárních písniček. Zaznělo tedy i pár anglických, ale byly s takovým přizvukem, že se to víceméně dalo poznat jen dle známé melodie.
 
@@ -379,3 +381,41 @@ Navečer se vydám do restaurace s mořskými plody, dám si _boquerones y něja
 Po delší době se po práci vydám k moři. Nejsem na pláži dlouho, ale velmi obstojně stihnu vykoupání a slunění před tím, než mne hlad vyžene pro večeři, kterou si opět dám v mém oblíbeném baru na rohu ulice, kde už mne servírka zná jako toho člověka, který si dává půl litr piva (= _pinta_), což jak už jsem zmiňoval, není úplně běžné.
 
 Před spaním pokračuji s druhou sérií Supernatural.
+
+## 22.7. -- sobota
+
+Dneska se cítím velmí líně. Ráno si hezky posnídám a potom přes den alternuji čtení Duny, koukání na Supernatural a hraní Zaklínače.
+
+## 23.7. -- neděle
+
+Začínám brunchem. Vydám se do nové restaurace, která je nedaleko. Je to sice menší podnik, ale o to útulnější a přidaná hodnota je velmi příjemná obsluha, která mi záhy vysvětlí, že toto je Paraguayská kuchyně. Vzhledem k tomu, že lístek jako obvykle je velmi strohý (co se týče vysvětlení, co který název Paraguayského jídla znamená), tak se doptám servírky, která mi ochotně popíše téměř všechno v lístku. Nakonec si vyberu dvě tapas a k tomu si dám již klasické café con leche. Vzal jsem si s sebou čtečku, takže v průběhu jídla a u kávy jsem si četl.
+
+Nepřímo inspirovaný knihou jsem se rozhodl dnes také vrhnout na pokračování v mém osobním C++ projektu _Tektonik_. Nevím jestli je to dobře nebo špatně, ale při programování mi čas ubíhá ani nevím jak. Takže najednou byl večer.
+
+## 24.7. -- pondělí
+
+V průběhu dne se domluvím ve WhatsApp skupině, že se odpoledne připojím na beach volejbal. Po práci tedy nasazuji čočky a vyrážím na kole směr pláž. Sejde se nás tolik, že hrajeme na dvou hřištích. Má to výhodu, že můžeme docela dobře prohazovat lidi, takže si zahraji v různých kombinacích. Nechci se nějak moc vytahovat, ale mám pocit, že jsem jeden z těch lepších hráčů.
+
+## 25.7. -- úterý
+
+Konečně mi to vychází a po zprávě ve WhatsApp skupině se vydávám si zahrát šachy! Dorazím na Calle Larios a po chvíli chůze narazím na dva stoly, které jsou pokryté šachovnicemi. Velmi příjemně mne překvapí, že jsou k dispozici i velmi pěkné šachové hodiny.
+
+Po asi tak deseti sekundách, kdy obhlížím situaci se mne _organizátor_ zeptá, jestli si chci zahrát. Samozřejmě souhlasím a jdeme na to. Jak jsem asi tak nějak tušil, organizátor je velmi silný (alespoň šachově), takže má výhra se nekoná, ale partie je zábavná a dále pokračuji s dalšími hráči.
+
+Chvíli si tak hraju a najednou... co to slyším? Čeština? Chvilku jen tak incognito poslouchám a zjistím, že jde o českou rodinu, kde by si nejmenovaný syn chtěl zahrát. Vyzvu ho tedy na partii a dáme pár her. Souboj je to překvapivě vyrovnaný (ale vyhrávám víc :P).
+
+Bohužel po velmi dlouhé době je dneska v Málaze trochu víc frišno, takže při sezení mi začne být zima a musím tedy pomalu vyrazit. Cestou se ještě zastavím v mé oblíbené restauraci na rohu. A rozhodnu se dát si calimocho. K mému absolutnímu překvapení servírka neví, co to je. Díky tomuto nabydu podezření, že servírka není místní -- nejspíše z Maroka. Každopádně po mém vysvětlení, že je to prostě jenom _vino tinto con coca cola_ mi přinese sklenku vína a plechovku coca coly. Takže po zahrání na barmana si užívám španělskou klasiku.
+
+## 26.7. -- středa
+
+Po práci se dneska akorát vydám pro zmrzlinu, ale jinak trochu sociálně odpočívám a užívám si poklidného teplého večera.
+
+## 27.7. -- čtvrtek
+
+Původně jsem měl v plánu zkusit se po práci přidat do pokročilejší skupiny na beach volejbal, ale bohužel se skupina rozpadla, takže lehce demotivovaný zůstávám doma.
+
+## 28.7. -- pátek
+
+Úterní šachy mne velmi bavily, takže se dneska znovu vydávám směr Calle Larios. Tentokrát jsem vybaven svetrem (v sprnu v Málaze!), který dokonce s ubývajícím slunce dostane využití. Dovolí mi to tedy hrát déle, což znamená, že si užívám posouvání figurek na 64 polích asi 4 hodiny v kuse.
+
+Spokojený se krátce před půlnocí vracím domů.
