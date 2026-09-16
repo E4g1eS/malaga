@@ -235,7 +235,7 @@ Protože Dean také:
 
 Což ve výsledku znamená, že se mi seriál docela líbí.
 
-## 1.7. -- sobota
+## 1.8. -- sobota
 
 Odpoledne jsem se rozhodnul, že se vydám na pláž a zkusím si s někým zahrát beach volejbal. Nasadím si tedy čočky (překvapivě rychle) a obicykluji si k pláži. Jak tak projíždím okolo krásné písečné pláže, tak se rozhlížím po natažených sítích. Málem se u toho přerazím jenom dvakrát. Po chvíli uznám, že určitý kousek pláže má velkou koncentraci sítí a beach volejbalistů, takže zastavím, zamknu kolo a jdu se podívat blíž. Jak jsem tak očekával, tak spousta lidí to hraje na velmi dobré úrovni (a co si budem, u beache je to dost znát), takže tam nic nezkouším. Koutkem oka si všimnu trojice, která se rozcvičuje, tak se k ní vydám a zeptám se (španělsky :P), jestli se můžu přidat. Bohužel se dozvím, že už mají skupinu, která za chvíli přijde.
 
@@ -245,29 +245,29 @@ Po nějaké chvíli už je většina vyčerpaná (což chápu -- začali hrát d
 
 Setkání zakončíme rychlým skokem do moře a naprosto vyčerpaný a naprosto spokojený odjíždím domů.
 
-## 2.7. -- neděle
+## 2.8. -- neděle
 
 Velmi sociální sobotu dnes vyvážím pohodičkováním a zkouknutím až nezdravě mnoho dílů Supernatural.
 
-## 3.7. -- pondělí
+## 3.8. -- pondělí
 
 Již téměř pravidelné pondělní fitko mne baví a přestože si nezakládám na velikosti svalové hmoty nebo na zvedání automobilů, tak jsem rád, že dělám něco zdravého pro své tělo.
 
-## 4.7. -- úterý
+## 4.8. -- úterý
 
 Středeční gaming session se ségrou byla přesunuta na dnešek. Jsem trochu vypnutý, ale jsme schopní v Terrarii upižlat Skeletrona a dokonce i pár dalších bossů včetně Wall of Flesh. Zároveň si samozřejmě se ségrou i pokecáme.
 
-## 5.7. -- středa
+## 5.8. -- středa
 
 Konečně jsem přesvědčil Eli, že ji naučím jezdit na kole. Jakmile vyjdu před dům, tak se smutnýma očima sleduji, že někdo v noci přišel a za pomocí štípaček si moje kolo vypůjčil na dobu neurčitou. Ve své podstatě mne mrzí mnohem víc, že jsem Eli něco slíbil a nebudu to moct dodržet -- zvlášt něco tak zajímavého. Samotná cena kola byla taková, že si myslím, že jsem rozhodně využil jeho hodnotu naplno. Vydávám se tedy na pláž... bez kola... takže ještě ke všemu příjdu pozdě.
 
 Setkání však probíhá příjemně, trochu víc se poznáváme, zaplaveme si, zkoušíme kolik kdo udělá kotrmelců ve vodě a užíváme si pláže společně. Z nějakého důvodu je dnes větší zima, takže se po chvíli sebereme a jdeme se ještě trochu projít po nedalekém tržišti. Napadne mne, že bych si měl pořídit do sbírky také prstýnek z Málagy. Jeden si tedy vyhlédnu a bez přílišného zdráhání koupím. Už z předchozích setkání jsem vycítil, že Eli je docela proti srsti, když za ni někdo něco platí, takže to ani nezkouším (ale samozřejmě mě to napadne!)
 
-## 6.7. -- čtvrtek
+## 6.8. -- čtvrtek
 
 Z nějakého důvodu se probudím se středně masivní migrénou a přes den se snažím přežívat. Ibalginu odolám hlavně z důvodu, že jich tu nemám tolik. A co kdyby přišlo něco horšího.
 
-## 7.7. -- pátek
+## 7.8. -- pátek
 
 Včera v noci přiletěl do Málagy můj kolega _Honza_. Jsme tedy domluvení na dnešní oběd. Vybral jsem moji známou kolumbijskou restauraci. Já jsem si jako obvykle dal denní menu. Honza si vybral řízek... za 18 Eur. Když si to objednával, tak mi to ještě nedošlo, ale tento řízek měl stejnou cenu, jako to gigantické jídlo, které jsem jedl tři dny. A Kolumbijci nezklamali, Honzovi přistála na stole taková porce řízků, že si také odnášel minimálně polovinu domů.
 
@@ -278,7 +278,7 @@ Honza: Margarita + Piña colada
 
 Nu a poté Honza odešel dojíst řízek.
 
-## 8.7. -- sobota
+## 8.8. -- sobota
 
 Ráno mi paní z inzerátu na další kolo odepsala, že v 11 si můžu kolo vyzvednout. Což znamenalo tedy lehkou paniku, protože jsem samozřejmě vstával asi tak v 9:45 a místo k vyzvednutí nebylo úplně za rohem. Každopádně kolo jsem si úspěšně vyzvednul. Chvilku jsem šaškoval mezi více obchody, který _ani jeden_ neměl zámek na kolo, takže jsem to nakonec "vzdal" a vydal se do Decathlonu, který je tedy dál, ale už jsem jel na jistotu.
 
@@ -288,7 +288,7 @@ Odpoledne se mi na pláži povedlo i na chvíli usnout, ale naštěstí jsem se 
 
 Zakotvili jsme to tedy na nějakých pár sklenek vína a jídlo. Pokecali jsme a nakonec se rozloučili. Honza odešel pěšky a já na kole. Akorát jsem si musel přední kolo nafouknout, protože to vypadá, že uchází.
 
-## 9.7. -- neděle
+## 9.8. -- neděle
 
 V plánu je výšlap na nedaleké dva kopce. Okolo poledne dáváme sraz pod mým domem a vyrážíme najít nějaký oběd, abychom se na ten výkon posilnili. Moc toho ještě otevřeného není, tak pro ušetření nějakého času zamíříme do Burger Kingu (který je tu z nějakého důvodu mnohem populárnější než McDonald). Jako benchmark si dám klasický Whopper... a chutná jako klasický Whopper, takže alespoň chuť si drží stejnou. Když si jdu natočit bezedné pití, tak ovšem stroj nefunguje. Přivolám obsluhu, která vypadá, že mi nejdřív moc nevěří, ale po vyzkoušení mi dá zapravdu. Po asi deseti minutách se ozve, že už je to ready, takže si vítězoslavně jdu natočit nějaké ty cukry a kofein, abych měl energii na cestu.
 
@@ -302,17 +302,17 @@ Již docela vyšťavení (teda alespoň já) slezeme zpátky do města a cestou 
 
 Po tomto jsme tak vypnutí, že se rozloučíme a vyrazíme si dát siestu. Navečer se ale ještě zmátoříme (ani nevím jak) na společnou večeři, na kterou dojedu na kole a potom dokonce vodní dýmku. Honza má vodní dýmku po hodně dlouhé době, tak se ujmu o jeho duševní obohacení dýmkovými znalostmi. U tinto de verano pokecáme a se slábnoucí dýmkou se už finálně odebereme na kutě.
 
-## 10.7. -- pondělí
+## 10.8. -- pondělí
 
 Dnes je to bohužel krátký a smutný příběh. Jsem domluvený s jednou slečnou, že vyrazíme ven. Nejdříve to ale slečna posune a následně schůzku zruší úplně. Es lo que hay.
 
-## 11.7. -- úterý
+## 11.8. -- úterý
 
 S Honzou se domluvíme na pohodózní večeři v jedné restauraci. Na kole v pořádku dorazím a dáme si každý nějakou mňamku. Poté se ještě rozhodneme přesunout a potkáme sportovní areál, kde lidé hrají _padel_ a člověk se na ně od baru může koukat. Tak se tam posadíme, dáme si pivo a chvíli pozorujeme jak se ta hra vlastně hraje. Vypadá to jako takový tenis pro někoho, kdo to nechce brát tak vážně.
 
 Když sportovní centrum začne vypadat, že zavírá, tak se s Honzou  rozloučíme a já začnu nafukovat přední kolo od kola... a bohužel slyším příliš nahlas unikající vzduch. Díra z dřívějška se očividně rozšířila. Cesta tedy vypadá tak, že popojedu asi tak 250 metrů a nafukuji znovu. Po příliš dlouhé a náročné cestě se ale úplně vyflusaný dostanu úspěšně domů. Bohužel tento výkon mne asi vypnul natolik, že jsem se doslova přehřál a mám úpal s pěkným bolením hlavy. Snažím se pít, co to dá, ale efekt to má minimální.
 
-## 12.7. -- středa
+## 12.8. -- středa
 
 Přestože předešlá noc byla krušná, tak téměř stoprocentní zatmění slunce si nemohu nechat ujít. Honza byl tak hodný, že přes den s nelehkými překážkami (vyprodáno / nešpanělšinou) pokoupí dvoje brýle posvěcené EU. Takže okolo šesté se společně vydáváme na cestu na nedaleký kopec (ten z neděle). A co vám budu povídat, s dozvuky úpalu to není výšlap vůbec lehký. Nějak se nakonec octnu na vrcholu, který tentokrát je docela rušnější než minule, ale pořád sedíme "v první řadě".
 
@@ -328,13 +328,13 @@ Bohužel není zatmění stoprocentní. Jakmile s Honzou seznáme, že už se sl
 
 Při návratu domů už mi hlava úplně pulzuje a musím si na ni lít studenou vodu. Následuje další pěkně úpalová noc. Ale za to zatmění to stálo!
 
-## 13.7. -- čtvrtek
+## 13.8. -- čtvrtek
 
 S lítostí Honzovi napíšu, že dneska jsem fakt KO, protože potřebuju alespoň trochu zregenerovat ten úpal. Což se mi relativně povede.
 
 A ještě zvládnu vyměnit duši v předním kole kola.
 
-## 14.7. -- pátek
+## 14.8. -- pátek
 
 Dneškem začíná _Feria de Málaga_, což jsou _týdenní_ slavnosti Málagy. V pozdním odpoledni se s Honzou sejdeme u průvodu, který vyráží z náměstí a obsahuje různé historické převleky včetně krále, duchovních, vojáků a pochodové kapely. Tím, že mám porovnání z Kutné Hory, tak mohu podotknout... máme lepší.
 
@@ -346,11 +346,11 @@ Decentní chvíle černé oblohy hezky oddělí následující ohňostroj, na kt
 
 Tento audiovizuální zážitek už nás odrovná a v masivním davu se vydáme na cestu domů.
 
-## 15.7. -- sobota
+## 15.8. -- sobota
 
 Dnes jsme odpoledne/navečer zamířili do Piccasova muzea. Přestože nejsem moc malířský znalec a obdivovatel, tak se mi výstava velmi líbila a zároveň jsem se dozvěděl alespoň základní věci ze života tohoto Malažského rodáka. Následně jsme s Honzou šli obcházet město a obrážet hospůdky a restaurace. Já jsem si výjimečně dal střízlivou sobotu, ale i tak byl pokec a pohodičkování příjemné.
 
-## 16.7. -- neděle
+## 16.8. -- neděle
 
 Začali jsme obědem v již zmíněné _Terra Mía_. Při příležitosti návštěvy italské restaurace jsem se odhodlal dát si espresso. Sice jsem ho zvládl vypít, ale asi budu pokračovat spíše v café con leche. Dezert ke kávě ovšem velmi potěšil.
 
@@ -360,43 +360,43 @@ Cestou ze hřbitova jsme narazili na koncert náhodné španělské skupinky. Sy
 
 Po večeři jsme s Honzou ještě na závěr jeho výletu do Málagy zakotvili ještě jednou v dýmkárně.
 
-## 17.7. -- pondělí
+## 17.8. -- pondělí
 
 Z minulého týdne jsem lehce přesocializovaný, takže si doma dávám naprosto asociální odpočinek.
 
-## 18.7. -- úterý
+## 18.8. -- úterý
 
 Po dlouhé době se připojím na rodinný call, kde vylíčím různé příhody ze Španělska. Následuje přesunutá (ze středy) gaming session se ségrou, kde uděláme zase nějaký progress a u toho trochu pokecáme.
 
-## 19.7. -- středa
+## 19.8. -- středa
 
 Nenápadně po práci dám vyprat a nachystám se do fitka. S velkým odhodláním se vypravím na cestu (přes ulici) a s velkým zklamáním zjistím, že mají sváteční otevírací dobu -- prý je nějaká Feria de Málaga nebo co. Zkroušeně tedy rovnou zamířím pro kebab a vrátím se domů.
 
-## 20.7. -- čtvrtek
+## 20.8. -- čtvrtek
 
 Navečer se vydám do restaurace s mořskými plody, dám si _boquerones y nějaký název pro chobotnice con patatas fritas_ a velmi si pochutnám. U večeře si čtu a obecně užívám příjemný, teplý večer.
 
-## 21.7. -- pátek
+## 21.8. -- pátek
 
 Po delší době se po práci vydám k moři. Nejsem na pláži dlouho, ale velmi obstojně stihnu vykoupání a slunění před tím, než mne hlad vyžene pro večeři, kterou si opět dám v mém oblíbeném baru na rohu ulice, kde už mne servírka zná jako toho člověka, který si dává půl litr piva (= _pinta_), což jak už jsem zmiňoval, není úplně běžné.
 
 Před spaním pokračuji s druhou sérií Supernatural.
 
-## 22.7. -- sobota
+## 22.8. -- sobota
 
 Dneska se cítím velmí líně. Ráno si hezky posnídám a potom přes den alternuji čtení Duny, koukání na Supernatural a hraní Zaklínače.
 
-## 23.7. -- neděle
+## 23.8. -- neděle
 
 Začínám brunchem. Vydám se do nové restaurace, která je nedaleko. Je to sice menší podnik, ale o to útulnější a přidaná hodnota je velmi příjemná obsluha, která mi záhy vysvětlí, že toto je Paraguayská kuchyně. Vzhledem k tomu, že lístek jako obvykle je velmi strohý (co se týče vysvětlení, co který název Paraguayského jídla znamená), tak se doptám servírky, která mi ochotně popíše téměř všechno v lístku. Nakonec si vyberu dvě tapas a k tomu si dám již klasické café con leche. Vzal jsem si s sebou čtečku, takže v průběhu jídla a u kávy jsem si četl.
 
 Nepřímo inspirovaný knihou jsem se rozhodl dnes také vrhnout na pokračování v mém osobním C++ projektu _Tektonik_. Nevím jestli je to dobře nebo špatně, ale při programování mi čas ubíhá ani nevím jak. Takže najednou byl večer.
 
-## 24.7. -- pondělí
+## 24.8. -- pondělí
 
 V průběhu dne se domluvím ve WhatsApp skupině, že se odpoledne připojím na beach volejbal. Po práci tedy nasazuji čočky a vyrážím na kole směr pláž. Sejde se nás tolik, že hrajeme na dvou hřištích. Má to výhodu, že můžeme docela dobře prohazovat lidi, takže si zahraji v různých kombinacích. Nechci se nějak moc vytahovat, ale mám pocit, že jsem jeden z těch lepších hráčů.
 
-## 25.7. -- úterý
+## 25.8. -- úterý
 
 Konečně mi to vychází a po zprávě ve WhatsApp skupině se vydávám si zahrát šachy! Dorazím na Calle Larios a po chvíli chůze narazím na dva stoly, které jsou pokryté šachovnicemi. Velmi příjemně mne překvapí, že jsou k dispozici i velmi pěkné šachové hodiny.
 
@@ -406,16 +406,64 @@ Chvíli si tak hraju a najednou... co to slyším? Čeština? Chvilku jen tak in
 
 Bohužel po velmi dlouhé době je dneska v Málaze trochu víc frišno, takže při sezení mi začne být zima a musím tedy pomalu vyrazit. Cestou se ještě zastavím v mé oblíbené restauraci na rohu. A rozhodnu se dát si calimocho. K mému absolutnímu překvapení servírka neví, co to je. Díky tomuto nabydu podezření, že servírka není místní -- nejspíše z Maroka. Každopádně po mém vysvětlení, že je to prostě jenom _vino tinto con coca cola_ mi přinese sklenku vína a plechovku coca coly. Takže po zahrání na barmana si užívám španělskou klasiku.
 
-## 26.7. -- středa
+## 26.8. -- středa
 
 Po práci se dneska akorát vydám pro zmrzlinu, ale jinak trochu sociálně odpočívám a užívám si poklidného teplého večera.
 
-## 27.7. -- čtvrtek
+## 27.8. -- čtvrtek
 
 Původně jsem měl v plánu zkusit se po práci přidat do pokročilejší skupiny na beach volejbal, ale bohužel se skupina rozpadla, takže lehce demotivovaný zůstávám doma.
 
-## 28.7. -- pátek
+## 28.8. -- pátek
 
 Úterní šachy mne velmi bavily, takže se dneska znovu vydávám směr Calle Larios. Tentokrát jsem vybaven svetrem (v sprnu v Málaze!), který dokonce s ubývajícím slunce dostane využití. Dovolí mi to tedy hrát déle, což znamená, že si užívám posouvání figurek na 64 polích asi 4 hodiny v kuse.
 
 Spokojený se krátce před půlnocí vracím domů.
+
+## 29.8. -- sobota
+
+TODO chill víkend
+
+## 30.8. -- neděle
+
+TODO chill a večer přiletí Monča - bar crawl s návštěvou ole ole?
+
+## 31.8. -- pondělí
+
+TODO terra mía a deskovky
+
+## 1.9. -- úterý
+
+TODO dýmka?
+
+## 2.9. -- středa
+
+TODO deskovky
+
+## 3.9. -- čtvrtek
+
+TODO terra mía a další deskovky
+
+## 4.9. -- pátek
+
+TODO odlet
+
+## 5.9.-12.9. -- sobota až další sobota
+
+TODO Plachetnice: TODO fotky
+
+## 13.9. -- neděle
+
+TODO dorazil jsem zpátky a potkal slečnu v hospodě
+
+## 14.9. -- pondělí
+
+TODO odpočinkový den + bar oňa
+
+## 15.9. -- úterý
+
+TODO Intermediate beachvolejbal 
+
+## 16.9. -- středa
+
+TODO moni gaming session
