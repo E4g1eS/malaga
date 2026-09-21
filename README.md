@@ -467,3 +467,23 @@ TODO Intermediate beachvolejbal
 ## 16.9. -- středa
 
 TODO moni gaming session
+
+## 17.9. -- čtvrtek
+
+TODO mamka přijede, vyzvednutí z metra, oběd v náhodné restauraci, mamka na pláži, večeře směr pláž, arroz negro, pepegawalk zpátky
+
+## 18.9. -- pátek
+
+TODO večeře Terra Mía, těžko, dvě piva v ole ole a plánování
+
+## 19.9. -- sobota
+
+TODO výlet do Fuengiroly, výšlap na zavřený hrad, plážování, vlny, návrat a zklamání v Pataconazo López, takže zakempení v El Aňejo
+
+## 20.9. -- neděle
+
+TODO museo de Málaga, pláž, kafe, výšlap na horu, Paraguaská
+
+## 21.9. -- pondělí
+
+TODO ramen oběd (po Pataconazo zklamání)
