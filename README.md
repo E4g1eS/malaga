@@ -456,21 +456,27 @@ Na lodi jsem neměl čas psát si deník a zároveň nejde o Málagu :P
 
 ## 13.9. -- neděle
 
-TODO dorazil jsem zpátky a potkal slečnu v hospodě
+Let zpátky byl velmi vyčerpávající, protože s přestupem v Boloni (kde jsem dostal naprosto nepitelné kafe) jsem na cestě strávil velmi dlouho. Po přistání už jsem se chtěl jenom dostat domů. Na rohu mne však zláklo Ole Ole, takže jsem si ještě šel dát teď už normální café con leche. Při relaxování nad kávou najednou do restaurace přijde slečna a s těžkým přízvukem na obsluhu zkouší kombinaci angličtiny a velmi základní španělštiny. Zkusím trochu překladatelsky vypomoct a poté se zeptám odkud slečna je. A můj odhad byl správný -- je z České Republiky! Dozvím se, že je tu na Erasmu a další soustu věcí. Nakonec si vyměnímě Instagram a já se konečně odeberu domů.
 
 ## 14.9. -- pondělí
 
-TODO odpočinkový den + bar oňa
+Po práci si schválně dám méně sociálního kontaktu, ale nakonec mne hlad vyžene ven. Přestože je blízko tak jsem nikdy nezkoušel bar _Oña_. Zavítám tam tedy poprvé a musím podotknout, že přestože jde o lehce dražší cenovou relaci, tak mi tam chutná. Dokonce si dám i dezert, který ale bohužel moc za ty peníze nestojí.
 
 ## 15.9. -- úterý
 
-TODO Intermediate beachvolejbal 
+Na dnešní odpoledne jsem se poprvé "zapsal" do pokročilejší _intermedio_ volejbalové skupiny. S lehkou nervozitou, jestli to budu schopný uhrát, se vydávám na západní pláž. Po přípravě začneme hrát a zjišťuji, že už sice nejsem ve skupině nejlepší, ale dokážu držet tempo. Narozdíl od začátečníků se tady už striktně hraje 2 versus 2. Hrajeme tak dlouho, že cesta zpátky na kole je poněkud náročnější.
 
 ## 16.9. -- středa
 
-TODO moni gaming session
+Již tradiční gaming session s Mončou začínáme založením nového Terraria světa, protože mezitím vyšel velký update, který naplno využijeme jenom tak. Pokecáme, zahrajeme a úspěšně pochillujeme.
 
 ## 17.9. -- čtvrtek
+
+Dneškem začíná poslední návštěva z ČR. Krátce po poledni jdu vyzvednout mamku ze stanice metra. Akutní hlad zaháníme v náhodné restauraci mezi El Corte Inglés a mým bytem. Poté se vrátíme do bytu. Já pokračuji v práci a mamka se jde projít a na pláž.
+
+Po práci dle dohody vyrážím za mamkou na pláž na kole. Od Chorvatska si poprvé zaplavu a moře je podivně teplé. V jedné z okolních restaurací si dáme pití -- seznámím mamku s nápojem tinto de verano a ochutnáme trochu červeného vína.
+
+Až se nabažíme výhledu na moře, tak se vydáme dál. Dorazíme do // TODO
 
 TODO mamka přijede, vyzvednutí z metra, oběd v náhodné restauraci, mamka na pláži, večeře směr pláž, arroz negro, pepegawalk zpátky
 
