@@ -422,35 +422,37 @@ Spokojený se krátce před půlnocí vracím domů.
 
 ## 29.8. -- sobota
 
-TODO chill víkend
+Většinu dne si dávám pohodičku před intenzivními dvěma týdny, které budou plné sociálního kontaktu.
 
 ## 30.8. -- neděle
 
-TODO chill a večer přiletí Monča - bar crawl s návštěvou ole ole?
+Navečer přiletí do Málagy moje malá milá sestřička _Monika_ se svým přítelem _Michalem_ a dvěma kamarády _Frantou_ a _Kubou_. Setkáme se na východní pláži a namočíme se do vody. Monča s tím má trochu problém (kvůli "studené" vodě), ale nakonec se také ponoří... téměř po ramena.
+
+Jakmile jsou všichni alespoň trochu uspokojeni mořem, tak se vydáváme pro něco k jídlu. Trochu si projdeme město a nakonec vyzkoušíme staré dobré Ole Ole. Lehce překvapím tím, že už se znám se servírkou. Po jídle se rozhodneme víceméně vrátit do centra a obcházíme bary a bistra jeden po druhém. V některých si dáme jenom pití, v jiných si dáme i nějaké tapas. Ztratil jsem počet, kolik jsme takto navštivili podniků, ale okolo půlnoci se vracím, protože zítra mne čeká práce.
 
 ## 31.8. -- pondělí
 
-TODO terra mía a deskovky
+Na večeři se dohodneme na mé doporučení na srazu v italské Terra Mía. Jako již obvykle je to vynikající mňamka ať už jde o pizzu nebo ragů. Po chvíli bádání, co dále, tak se rozhodneme pro chillózní večer deskovek u Monči a spol v AirBnB bytě. Nakoupíme v nedalekém obchodě nějaké palivo -- rum s colou, zakempíme doma a začneme s hrou _Vlkodlaci_. A kdo ji zná, tak je mu jasné, že u ní také skončíme (protože kdo by chtěl hrát něco jiného). Bohužel Michal se na deskovky nepřipojí.
 
 ## 1.9. -- úterý
 
-TODO dýmka?
+Dneska se sejdeme v jedné dýmkárně v centru. Vypadá téměř klubově a dáme si tam pár drinků. V jednu chvíli přijde nějaká slečna a začne mluvit česky. Než mi dojde, že je to doopravdy servírka, tak jsem totálně zmatený. V objednávkách mají trochu nepořádek, ale postupně si dáme spíš pivo a začneme se věnovat šipkám. Jde o elektronické šipky, které jsou až s podivem nabité technologiemi, které poznají, jestli člověk hází, jestli už vytáhnul šipky a jestli je v dostatečné vzdálenosti. Sehrajeme několik partií, nikdo šipky pořádně neumí, takže pokaždé vyhraje někdo jiný -- krásné. Nakonec mi dojdou drobné, které šipkomat žere -- méně krásné. Vyrazíme tedy dál, ale po chvíli se odpojím, protože další den mne zase čeká práce -- nejméně krásné.
 
 ## 2.9. -- středa
 
-TODO deskovky
+Mončina skupina je vyvýletěná a dohodneme se na schůzce rovnou v bytě. V plánu jsou deskovky. Cestou se stavím do obchodu pro nějaké tinto de verano. Dneska vyzkouším novou deskovku _Rok Pandy_, která mne velmi nadchne. Jde o jakýsi mix mezi klasickým Mariášem a hrou _Red Seven_ pro 2 až 5 hráčů... ale Michal se znovu nepřipojí. V průběhu Monča zjistí, že jí tinto de verano velmi chutná, takže se citím spokojeně s mým výběrem.
 
 ## 3.9. -- čtvrtek
 
-TODO terra mía a další deskovky
+V Terra Mía Monče a jejím kumpánům chutnalo tolik, že na jejich popud si ji dáme znovu. V restauraci s námi sedí skupina mladých Španělů a Španělek, která vypadajá, že něco slaví. Ale po otázce, co se děje, tak se dozvídáme, že se nic neděje... takže veselí je prostě jen tak. Po vydatné pizze se vydáme do bytu a dáme si repete deskovek.
 
 ## 4.9. -- pátek
 
-TODO odlet
+Dnes odpoledne odlétám do Zadaru na kurz plachtění na lodi. Letadlo mi naštěstí letí v celkem normální čas, takže mohu využít MHD. Když nastupuji do metra, tak je jedna z turniketových bran permanentně otevřená a já bezmyšlenkovitě projdu dovnitř. Až po nastoupení do vagónu si uvědomím, že jsem vlastně v pr*eli, protože při výstupu se pípá kartou, což počítá ujetou vzdálenost... ale vzhledem k tomu, že jsem si nikdy nepípnul při nástupu, tak chybí informace, kde jsem nastoupil. Chytá mne lehká panika týkající se stihnutí letu. Vystoupím na zastávce Aeropuerto a jdu ven. Z nějakého nepochopitelného důvodu je jedna z bran ven také permanentně otevřená... takže jsem úspěšně jel omylem na černo. Zbytek nástupu do letadla proběhne až překvapivě hladce.
 
 ## 5.9.-12.9. -- sobota až další sobota
 
-TODO Plachetnice: TODO fotky
+Na lodi jsem neměl čas psát si deník a zároveň nejde o Málagu :P
 
 ## 13.9. -- neděle
 
