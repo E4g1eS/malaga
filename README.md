@@ -476,22 +476,48 @@ Dneškem začíná poslední návštěva z ČR. Krátce po poledni jdu vyzvednou
 
 Po práci dle dohody vyrážím za mamkou na pláž na kole. Od Chorvatska si poprvé zaplavu a moře je podivně teplé. V jedné z okolních restaurací si dáme pití -- seznámím mamku s nápojem tinto de verano a ochutnáme trochu červeného vína.
 
-Až se nabažíme výhledu na moře, tak se vydáme dál. Dorazíme do // TODO
+Až se nabažíme výhledu na moře, tak se vydáme dál. Při procházení postranních uliček narazíme na zapadlý podnik _La Güuerta_, který ale vypadá velmi přivětivě. Vzhledem k tomu, že jsme ve Španělsku, tak rozhodnutí nakonec padne na paellu. Na mé doporučení zkusíme arroz negro, což se ukáže jako velmi chutné rozhodnutí.
 
-TODO mamka přijede, vyzvednutí z metra, oběd v náhodné restauraci, mamka na pláži, večeře směr pláž, arroz negro, pepegawalk zpátky
+Po jídle už se vydáme na relativně dlouhou cestu domů -- trochu nešikovné je, že musím vést kolo, protože jsem na něm přijel. Nakonec se párkrát vystřídáme v hlemýždí jízdě vedle toho druhého.
 
 ## 18.9. -- pátek
 
-TODO večeře Terra Mía, těžko, dvě piva v ole ole a plánování
+Dneska mamka přes den prozkoumává Málagu a navečer jsme domluvení na již klasické návštěvě Terra Mía. Tentokrát zvolím _Calzone_ ("zabalená pizza"). Přestože je pizza velmi dobrá, tak je dosti masivní a je v ní tolik sýra, že mi potom začne být těžko, jak kdybych snědl dvě kachny a nezapil to pivem.
+
+Cestou domů se ještě stavíme v Ole Ole, kde zkusím zahnat těžkost dvěmi kousky piva, ale ani to nepomůže. Nějakým způsobem se mi povede dokutálet se domů... ale šlo to pomalu.
+
+Doma si otevřeme víno a plánujeme víkend.
 
 ## 19.9. -- sobota
 
-TODO výlet do Fuengiroly, výšlap na zavřený hrad, plážování, vlny, návrat a zklamání v Pataconazo López, takže zakempení v El Aňejo
+V sobotu jsme naplánovali výlet do Fuengiroly. Cestou metrem si povídáme, takže cesta uběhne až překvapivě rychle. Většina cesty je také nad povrchem, sledujeme tedy okolní krajinu a místy i moře.
+
+Ve Fuengirole nás přivítá barevné a živé město. Procházíme se směr hrad a narážíme na různé atrakce typu: kostel, koňská show, obchod Richard's, tekoucí řeka, na které se hraje vodní pólo s kajaky.
+
+Zkusíme si vyšlápnout nahoru na hrad. Nahoře slavnostně zjistíme, že mají dneska zavřeno, tak si alespoň obejdeme hradby, ze kterých je krásný výhled. Mamku také velmi baví poletující papoušci všude okolo.
+
+Další zastávka je na pláži. Přestože nemám pocit, že by nějak výrazně foukalo, tak jsou zatím největší vlny, co jsem tu viděl. Mne i mamku voda párkrát vymele, ale obecně mi to přijde jako velmi zábavná změna oproti běžným minivlnkám.
+
+V průběhu dne si dáváme snacky a drinky a po návratu domů chci vzít mamku do Pataconazo López. Avšak poté, co projdeme rozkopanou ulicí směr tato kolumbijská restaurace, tak zjistíme, že je zavřená (přestože Google tvrdí opak). S lehkým zklamáním tedy zakempíme těsně vedle vchodu do bytu v El Añejo. Na lístku mají tapa s "tuňákem a sýrem". Jednu tedy objednáme a donesou miniaturní párátko s dvěmi mikro kostičkami tuňáka a dvěmi kostičkami sýra. Každý si tedy dáme jednu kostičku od každé a jdeme rovnou objedna něco dalšího. Boquerones en vinagre už mají lidštější velikost, takže si hezky pošmákneme.
 
 ## 20.9. -- neděle
 
-TODO museo de Málaga, pláž, kafe, výšlap na horu, Paraguaská
+Dneska začínáme v _Museo de Málaga_. Muzeum má dvě části: archeologickou a obrazovou. Obě zabírají celé patro velké budovy muzea.
+
+Začínáme v archeologické a dozvídáme se o historii nejen Málagy, ale člověka jako takového -- v Andalusii je totiž hodně prehistorických jeskyň. Historie vede od pravěku, přes Římskou říši po druhou světovou válku. Musím podotknout, že i dosti prehistorické keramické nádoby vypadají velmi zachovale a klidně bych pár takových měl doma. Také s podivem zjišťuji, jak brzo se člověk začal zabývat metalurgií.
+
+Další je na řadě výstava obrazů od spousty španělských umělců. Vzhledem k obsáhlosti sbírky se těžko něco říká obecně, ale hlavními motivy byly: náboženství, námořnictví (mé oblíbené) a život obecně. Pár velmi pěkných kousků také znázorňovalo corridu.
+
+Pěkně ušlapaní se odsuneme do nedaleké marokánské restaurace. Jídlo není špatné, ale moje oblíbená kuchyně to asi také nebude. Jdeme si odpočinout na pláž, na které dokonce i na chvíli pod palmami usneme. Párkrát se namočíme a vyrazíme zpátky. Než se vydáme skrz malažský tunel, tak si cestou ještě u pláže dáme kafe.
+
+Krátký pitstop v bytě nám trochu doplní síly a vydáváme se ještě na již mnou vyzkoušený _Monte Coronado (El Pitu)_ s hromosvodem ve tvaru kříže. Jdeme v podvečer, takže cesta už není tak teplotně náročná a po chvíli vyhýbání psím bobkům a krátkého výšlapu už stojíme nad Málagou.
+
+Na závěr vezmu mamku do paraguaské _La Guarania_. Postupně vyzkoušíme asi tři nebo čtyři různá jídla včetně paelly s těstovinami. Hezky napápnutí se odkutálíme domů dopít víno a spát.
 
 ## 21.9. -- pondělí
 
-TODO ramen oběd (po Pataconazo zklamání)
+Dnes už zase pracuji, takže se s mamkou potkám pouze na oběd v ramen restauraci (poté co nás čeká další zklamání se zavřeným Pataconazo López).
+
+Navečer se sejdeme v centru a narazíme na mexickou restauraci, která má margarity. Chci ji zkusit porovnat s českou (bohužel už zavřenou) _La Patronou_, takže zavítáme i dovnitř. Margarita není špatná, ale na blueberry frozen margaritu to pořád nemá. Následně se ještě na závěr návštěvy přesuneme do spolehlivého Ole Ole.
+
+Na půl čvrtou ráno objednám mamce taxíka, který ji úspěšně odveze na letiště a mamka úspěšně odletí do zimy v ČR.
