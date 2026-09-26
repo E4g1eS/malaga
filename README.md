@@ -521,3 +521,26 @@ Dnes už zase pracuji, takže se s mamkou potkám pouze na oběd v ramen restaur
 Navečer se sejdeme v centru a narazíme na mexickou restauraci, která má margarity. Chci ji zkusit porovnat s českou (bohužel už zavřenou) _La Patronou_, takže zavítáme i dovnitř. Margarita není špatná, ale na blueberry frozen margaritu to pořád nemá. Následně se ještě na závěr návštěvy přesuneme do spolehlivého Ole Ole.
 
 Na půl čvrtou ráno objednám mamce taxíka, který ji úspěšně odveze na letiště a mamka úspěšně odletí do zimy v ČR.
+
+## 22.9. -- úterý
+
+Po návštěvě si dám odpočinkový den a po práci si chilluji doma.
+
+## 23.9. -- středa
+
+Už se pomalu (ale měl bych rychle) začínám koukat po bydlení zpátky v Praze. Jinak docela vydařeně prokrastinuji a zakončuji den hezky kebabem.
+
+## 24.9. -- čtvrtek
+
+V šachové WhatsApp skupině se konečně ozve, že se budou konat šachy na Calle Larios, takže navečer vyrážím a hezky si v průběhu večera a brzké noci téměř do půlnoci zahraju s různými lidmi pěkné partie.
+
+## 25.9. -- pátek
+
+Po delší době se rozhodnu vyrazit do fitka. Již mne tam nečeká moc překvapení a po třech týdnech středně náročné alkoholové jízdy lehký úbytek sil zaznamenám, ale cvičení mne baví.
+
+K večeři si pustím Supernatural a dokouknu druhou sérii.
+
+## 26.9. -- sobota
+
+// TODO psaní deníku,
+// TODO zbytek
